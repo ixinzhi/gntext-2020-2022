@@ -1,0 +1,59 @@
+# 赤田的秘密
+
+作者：yanmiaoyan
+
+TID：17899
+
+<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 1
+
+自从装了缩小门之后,赤田就成了一个宅男,对于把比例调成100分之一的他来说,原来小小的房子如今比一座城堡还要巨大的多,四周的巨大墙壁更是让他有不一样的感觉,最近,他更是发现了另一个有趣的地方.
+    他房子的隔壁就是一所女性公寓,做为一个血气方刚的男子,他自然对住在里面的美女是有想法的,可惜拙于言辞的他不会搭讪,只能在梦里妄想,而如今安装了缩小门之后,他居然意外的发现了在他家和公寓之间居然有一个如今的他可以过去的缝隙,于是他偷偷通过那个缝隙来到了那个公寓里,开始他还比较小心,再加上那个公寓里的比例和他家的比例不一样,大概是20分之一的样子,使得他一直没有发现,也让他的胆子逐渐大了起来.
+    这天下午,他又通过缝隙来到了公寓中,他惊讶的发现公寓的浴间门没有关,过去由于大小的原因他没法进入,于是这次他壮着胆子走了进去.
+    "这就是那些女孩们天天洗澡的地方啊."赤田进入了浴间,想象着那些女孩们洗澡的样子,脑海中不由想象起那些女孩洗澡的样子,直到传来一阵女孩的声音惊醒了他,就在他惊慌的四周找可以躲藏的地方的时候,两个女孩走了进来,发现了躲在浴池中的赤田.
+    "小家伙,你是谁啊?"两个女孩来到了赤田的面前,高大的那个低头对赤田问道.
+    赤田抬头看着那两个巨大的美女,这是他第一次以这种视角看女孩,震撼的说不出话来,因为他发现自己甚至还没有那个娇小女孩的膝盖高,而那个娇小的女孩还没到高大女孩的胸部.
+    "美沙姐姐,他好像不是小孩子,而是隔壁房间的那个大哥哥,我刚搬过来的时候,他曾经帮我搬过东西."这时候那个娇小的女孩对高大女孩说道.
+    "哦,真的吗,那他为何这么小啊,小凉?"美沙好奇的看着脚边已经呆滞的小家伙,问那个娇小的女孩小凉.
+    "应该是由于门的缩小比例不一样吧,看他的样子应该是设定的缩小到差不多一百分之一了,然后通过缝隙过来的.只是我不知道大哥哥来到浴间来干啥."小凉分析道.
+    "小凉,你真不愧是小天才,不过毕竟还小,当然是由于他是小色狼了,就让美沙姐姐告诉你男人来女人的地方想干啥吧.不过这么小的家伙,还真是一次新鲜的体验呢."美沙看着小小的赤田舔了舔自己的嘴唇.
+
+<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 2
+
+ <ignore_js_op>[2.bmp](forum.php?mod=attachment&aid=NDc2NTB8YTlhYTUxMTB8MTYwMDg4OTY1NXwxODIzMHwxNzg5OQ%3D%3D&nothumb=yes) *(2.25 MB, 下載次數: 34)*
+
+[下載附件](forum.php?mod=attachment&aid=NDc2NTB8YTlhYTUxMTB8MTYwMDg4OTY1NXwxODIzMHwxNzg5OQ%3D%3D&nothumb=yes)
+
+2014-10-12 22:10 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+![2.bmp](img/37c8ec636d8bba77b1782cf4ead136e4.png "2.bmp")</ignore_js_op> <ignore_js_op>[1.bmp](forum.php?mod=attachment&aid=NDc2NDl8ZDNjYjhmMGZ8MTYwMDg4OTY1NXwxODIzMHwxNzg5OQ%3D%3D&nothumb=yes) *(2.25 MB, 下載次數: 10)*
+
+[下載附件](forum.php?mod=attachment&aid=NDc2NDl8ZDNjYjhmMGZ8MTYwMDg4OTY1NXwxODIzMHwxNzg5OQ%3D%3D&nothumb=yes)
+
+2014-10-12 22:09 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+![1.bmp](img/2632bd7a26da27a37ba9f666c534cd55.png "1.bmp")</ignore_js_op> <ignore_js_op>[3.bmp](forum.php?mod=attachment&aid=NDc2NDh8ZDNkMDk2OTV8MTYwMDg4OTY1NXwxODIzMHwxNzg5OQ%3D%3D&nothumb=yes) *(2.25 MB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=NDc2NDh8ZDNkMDk2OTV8MTYwMDg4OTY1NXwxODIzMHwxNzg5OQ%3D%3D&nothumb=yes)
+
+2014-10-12 22:07 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+![3.bmp](img/3a43998a981ba4e774c080e58cca74f2.png "3.bmp")</ignore_js_op> <ignore_js_op>![](static/image/filetype/rar.gif)
+
+[chitian.rar](forum.php?mod=attachment&aid=NDc2NTF8OGFjY2ZlMDl8MTYwMDg4OTY1NXwxODIzMHwxNzg5OQ%3D%3D)
+
+2014-10-12 22:13 上傳
+
+點擊文件名下載附件
+
+27.95 MB, 下載次數: 3430</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 3
+
+> [王正念 發表於 2014-10-13 19:25](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=236508&ptid=17899)
+> 圖文並茂，寫到我心裡去了，這圖是樓主畫的嗎
+
+是游戏人工少女3啊

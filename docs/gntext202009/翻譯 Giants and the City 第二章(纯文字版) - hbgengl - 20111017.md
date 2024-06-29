@@ -1,0 +1,68 @@
+# 翻譯 Giants and the City 第二章(纯文字版)
+
+作者：hbgengl
+
+TID：11158
+
+<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 1
+
+各位好，我是清正廉直的H君。
+      潜水4年没什么贡献，除了之前一篇不成熟的哈利波特同人GTS翻译，已经不知道沉到哪里去了。
+      前两天各位版主的厚爱让我很是羞愧，为了回报论坛，我只能尽些绵力，做点力所能及的事。
+      比如，翻译。
+      改图之类的事技术含量太高，就拜托达人们去做吧……我尽量保证大家能看懂就好。
+预览奉上：
+3p：紧急插播（红白标题标题）DDC新闻
+女主播：女士们先生们，这毫无疑问是人类历史上最重要的一天。一个长久以来的哲学问题得到了答案：我们是独一无二的么？-不，我们不是。
+男主播：的确如此。但另一个可能更重要的问题出现在我们面前：这是好事么？
+4p：本特·柯克曼 @CDC新闻
+柯克曼：全世界的人们都把目光聚集在了新反乌托邦城，就是巨大的外星人出现的那座城市。他们看起来和我们一样，用的语言和我们一样-但是他们的目的是什么？他们真的为和平而来么？地方当局对此没有做出表态。
+5p：加里·文直播@INN新闻     大地在震颤：巨大外星人真的存在
+文：这些女泰坦看起来很友善，但是她们真的是来自外层空间的和平的到访者么？抑或他们仅仅是太空入侵者？
+6p：
+红衣马尾妹子：哇哦，街道真窄。
+                                    一切都看起来这么可爱！就像一座玩具城
+7p：
+红衣马尾妹子：嘿，下面的你们好~
+8p：
+白发黑眼影妹子：是啊，小玩具城……
+11p:
+迷你裙妹子：太迷人了！
+13p：
+迷你裙妹子：哦……
+       P.S.曾经在翻译组呆过一段时间，当时被组长教导了很多，也有了自己一定的风格，比如不愿意用英文名字，语言习惯尽量汉语化而非忠实原句结构等，自认为勉强能够做到“信”“达”，“雅”的境界太高，力所不能及也。如果翻译有让您不舒服的地方请务必告诉我，我会改进。
+       P.S.2 怎么第二章比第一张多了那么多大段大段的文字啊……感觉没费什么劲两个小时就过去了……
+换成doc重新上传了下，希望不会再乱码了30
+
+[ *本帖最後由 hubert 於 2011-10-16 14:41 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 2
+
+ <ignore_js_op>![](static/image/filetype/zip.gif)
+
+[the_comic2.zip](forum.php?mod=attachment&aid=MjY0MTZ8YWQ5YTU5OTB8MTYwMDg5MTYxMnwxODIzMHwxMTE1OA%3D%3D)
+
+2011-10-12 13:47 上傳
+
+點擊文件名下載附件
+
+9.8 MB, 下載次數: 639
+
+原图片搬运</ignore_js_op>  <ignore_js_op>![](static/image/filetype/unknown.gif)
+
+[CH2.docx](forum.php?mod=attachment&aid=MjY0NTB8YjlkMzZjNzd8MTYwMDg5MTYxMnwxODIzMHwxMTE1OA%3D%3D)
+
+2011-10-14 00:34 上傳
+
+點擊文件名下載附件
+
+18.94 KB, 閱讀權限: **20**, 下載次數: 233
+
+幫補</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 3
+
+[http://www.giantessnight.com/gnf ... amp;extra=page%3D29](http://www.giantessnight.com/gnforum/viewthread.php?tid=1031&extra=page%3D29)
+在这里……当时很不成熟，后面没有GTS剧情反而各种GT乱入，于是便弃坑了，当时翻译组的一个家伙貌似后来接手又翻了一些，翻完没我就不知道了……

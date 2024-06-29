@@ -1,0 +1,88 @@
+# 【图配文翻译】女神降临·于大小姐
+
+作者：BellButton
+
+TID：26089
+
+<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 1
+
+*本帖最後由 BellButton 於 2018-11-20 12:41 編輯*
+
+写文填坑任重道远遥遥无期 先来几个图配文凑数
+原作者是DA的Big-n-evil
+[https://www.deviantart.com/big-n-evil/art/Yu-Da-s-Bath-toys-451954197](https://www.deviantart.com/big-n-evil/art/Yu-Da-s-Bath-toys-451954197)
+[https://www.deviantart.com/ Big-n-evil/art/Yu-Da-s-Ascension-452397355](https://www.deviantart.com/big-n-evil/art/Yu-Da-s-Ascension-452397355)
+[https://www.deviantart.com/big-n-evil/art/Cosmic-Yu-Da-458714067](https://www.deviantart.com/big-n-evil/art/Cosmic-Yu-Da-458714067)
+
+个人渣翻，轻黑，看的人多的话我继续<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 2
+
+ <ignore_js_op>[于雯女神降临1.jpg](forum.php?mod=attachment&aid=NzU1MDV8MDQzZWY4ZDZ8MTYwMDg4NTAzOHwxODIzMHwyNjA4OQ%3D%3D&nothumb=yes) *(200.99 KB, 下載次數: 162)*
+
+[下載附件](forum.php?mod=attachment&aid=NzU1MDV8MDQzZWY4ZDZ8MTYwMDg4NTAzOHwxODIzMHwyNjA4OQ%3D%3D&nothumb=yes)
+
+2018-11-20 09:59 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![于雯女神降临1.jpg](img/4d8a43c9f8b35a92a022a00ab81a6975.png "于雯女神降临1.jpg")](javascript:;)</ignore_js_op> <ignore_js_op>[于雯女神降临2.jpg](forum.php?mod=attachment&aid=NzU1MDZ8ZWZiNGMxNmF8MTYwMDg4NTAzOHwxODIzMHwyNjA4OQ%3D%3D&nothumb=yes) *(548.97 KB, 下載次數: 116)*
+
+[下載附件](forum.php?mod=attachment&aid=NzU1MDZ8ZWZiNGMxNmF8MTYwMDg4NTAzOHwxODIzMHwyNjA4OQ%3D%3D&nothumb=yes)
+
+2018-11-20 09:59 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![于雯女神降临2.jpg](img/7efcbabac1c1497deb61ae8c7d2e01d0.png "于雯女神降临2.jpg")](javascript:;)</ignore_js_op> <ignore_js_op>[于雯女神降临3.jpg](forum.php?mod=attachment&aid=NzU1MDd8NjI1MWI0MWN8MTYwMDg4NTAzOHwxODIzMHwyNjA4OQ%3D%3D&nothumb=yes) *(417.68 KB, 下載次數: 91)*
+
+[下載附件](forum.php?mod=attachment&aid=NzU1MDd8NjI1MWI0MWN8MTYwMDg4NTAzOHwxODIzMHwyNjA4OQ%3D%3D&nothumb=yes)
+
+2018-11-20 09:59 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![于雯女神降临3.jpg](img/7b9f319c1b6f239fc26f85fb69055277.png "于雯女神降临3.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 3
+
+坑啊，手机上传的图片，画质被压缩成渣了我干<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 4
+
+> xiakls 發表於 2018-11-20 18:24
+> 最开始看不清还以为是我的网不好只能读取缩略图
+
+现在应该已经好了，可以下载了<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 5
+
+> abcwt112 發表於 2018-11-20 20:33
+> 挺好的.配图也是中国妹子..
+> 谢谢分享了
+
+这个妹子真的超带感的，可惜最近不如以前了<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 6
+
+> hyperbeats 發表於 2018-11-21 11:41
+> 在deviantart上也看到很多其他的類近作品，希望樓主也能翻譯一些
+
+如果有好的作品的话可以推荐 给个链接我去看看<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 7
+
+> abcwt112 發表於 2018-11-21 19:28
+> 大佬能翻译日文的吗
+
+这个现在真不行啊，抱歉，明年下半年应该可以<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 8
+
+> spacewolves 發表於 2018-11-21 23:17
+> 啥情况？不如从前了？
+
+没以前的水平了，整容把自己整毁了<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 9
+
+> Big_n_evil 發表於 2018-12-10 16:51
+> 我是海外华人，中文不是很好但是也能说一点。
+
+您原来是华裔啊！失敬失敬，以后请多来GN论坛看看，这边也有挺多不错的东西哦!

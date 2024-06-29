@@ -1,0 +1,87 @@
+# 【翻译】【寺田落子】超巨大环彩羽
+
+作者：ZetaWocorde
+
+TID：25651
+
+<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 1
+
+*本帖最後由 ZetaWocorde 於 2018-8-8 16:23 編輯*
+
+各位好！
+大家看过魔法少女小圆吗？
+大部分人的答案应该是：“嗯。”
+那么问题来了：你还想再和魔法少女们一起冒险吗？
+《魔法纪录：魔法少女小圆外传》是一款SHIFT与f4samurai共同制作、Aniplex发行的二次元动漫风少女系RPG游戏，延续了原作的世界观和背景，华丽的技能释放，精彩的少女育成玩法，还有熟悉的人物和造型，在这个魔女和魔法少女的世界中战斗，形形色色的副本任务精彩对战，感兴趣的玩家就去B站预约吧！链接：https://game.bilibili.com/magireco/
+咳咳，跑偏了。
+今天的主题不是这款游戏。
+不过，这两张图片的主角和这款游戏的主角是一样的：环彩羽。
+由于文本内容较多，故放在文章区。
+——————————————————————————————————————————————————————
+**新手魔法少女——环 彩羽**
+“哇哦……”
+彩羽摔倒了。这位新晋的魔法少女，在使用转换魔法的过程中，由于控制不住自己的魔力，不断地变大。
+她修长的身体感到十分不适。她的屁股在沉到地底下时，吞噬了许多的山脉和城市。
+由于她出现得太突然，地面上的人根本没有时间去逃跑，和城市一起被她巨大的的屁股毁灭了。
+“啊……我真的很抱歉。”
+她温和的声音在四周荡漾开来，甚至传到了离这里很远的地方。
+就算杀死了超过1000万的人，彩羽仍因自己现在的尴尬姿势而羞恼。
+“啊，你们这么看我……我会很不好意思的……”
+当她还是正常的人类时所持有的价值观，在用魔法把自己变大后发生了意想不到的改变。
+在拥有数百千米身高的她眼中，人类就跟细菌一样。他们的生命没什么价值。
+然而，彩羽的善心使她不想再对城市造成更大的伤害，于是她尽可能地不去移动，保持在原地。
+“有很多人生活在这里……对吧？快点，请大家赶快逃跑！”
+她低下头，向两腿之间看去，对那些随时会被她的屁股毁灭的城市说道。
+
+**新手魔法少女的放屁**
+由于魔力对她身体的影响，彩羽的大肠变得更加活跃。
+体内的气体伴随着一股强大的冲击力涌向出口。彩羽的腹部开始发出叫声。
+“咕噜噜噜噜噜噜噜……！！”
+一震不可思议的震动让大地颤抖。
+当人们绝望地尝试从彩羽的屁股下面逃走时，他们在楼房倒塌的震动中被杀死。死者人数不断增加。
+“啊……我的肚子……”
+气体很快地移动到彩羽的大肠里，这些气体足以给这个微小的世界引发一场灾难。
+所以，如果这股气体从她的屁股里被释放出来，就会造成可怕的伤亡。
+彩羽尽可能地缩紧着自己的肛门，但是，她很快到达了极限。
+彩羽尴尬地羞红着脸，松开了自己的肛门。
+“噗噜噜噜噜噜噜噜噜！！！！！”
+这时，一阵巨大的冲击波涌到了地面上。
+刚才在彩羽的屁股前面的城市，在一瞬间消失了，成为地球的表面的一道裂缝。
+下一秒钟，甚至连海峡对岸的城市也被吹走了，只留下一道裂缝。
+在数以千万计的人类以及他们的城市和自己的放屁二者的选择中，彩羽选择了后者。
+在她看来，释放出经由自己堆积在大肠内部的排泄物的，具有强烈腥臭味的屁，比人类的生命更为重要。
+结果，这些城市消失了，仅仅因为彩羽松开了她的肛门。
+被释放出来的腥臭的暗黄色气体肆虐着，摩天大楼在其中像种子在风中一样无力。里面的人类同样被粉碎掉了。
+每个在地面上的人都被彩羽的屁吹飞了。城市的遗迹和山脉被吹到天上，缓缓飘落到更远的地方。
+星球的表面慢慢的被彩羽的屁取代。
+不幸的是，魔法少女的屁被魔力改变，变成了被污染的有毒气体。
+凡是彩羽的屁所蔓延到的地方，生活在那里的生物都化为尸体，植物腐烂了，大海也被污染了。
+在彩羽大肠里形成、从肛门里释放的气体，大概占了这个星球大气的5%。
+人类很快就会因她的屁而灭绝，不会有看到结果的一天。
+她的屁同样会传播到很远的地方，让这颗星球上的所有生物灭绝。 
+<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 2
+
+ <ignore_js_op>[gigairoha1_cn.png](forum.php?mod=attachment&aid=NzM1NDV8OWJiZjkxY2V8MTYwMDg4MDkyMXwxODIzMHwyNTY1MQ%3D%3D&nothumb=yes) *(1.84 MB, 下載次數: 172)*
+
+[下載附件](forum.php?mod=attachment&aid=NzM1NDV8OWJiZjkxY2V8MTYwMDg4MDkyMXwxODIzMHwyNTY1MQ%3D%3D&nothumb=yes)
+
+2018-8-8 16:17 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![gigairoha1_cn.png](img/3e6319cce0e04086322cf7591e4170fa.png "gigairoha1_cn.png")](javascript:;)</ignore_js_op> <ignore_js_op>[gigairoha2_cn.png](forum.php?mod=attachment&aid=NzM1NDZ8ZTk4MzVlZTJ8MTYwMDg4MDkyMXwxODIzMHwyNTY1MQ%3D%3D&nothumb=yes) *(2.05 MB, 下載次數: 154)*
+
+[下載附件](forum.php?mod=attachment&aid=NzM1NDZ8ZTk4MzVlZTJ8MTYwMDg4MDkyMXwxODIzMHwyNTY1MQ%3D%3D&nothumb=yes)
+
+2018-8-8 16:17 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![gigairoha2_cn.png](img/7f8e7f183849e8bd73eed4cfd79c0504.png "gigairoha2_cn.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 3
+
+图片根据英文版翻译。
+话说这个游戏真的超好玩（看up主玩日服）
+如有撞车，敬请告知。
+ps：哇我P图技术烂得一批兄弟
