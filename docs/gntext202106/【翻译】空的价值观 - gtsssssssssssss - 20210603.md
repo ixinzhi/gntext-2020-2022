@@ -4,7 +4,7 @@
 
 TID：31030
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -38,11 +38,11 @@ TID：31030
 
 回头瞅了一眼自己的帖子，感觉放图片区可能更合适。。。前一个大佬的帖子在文章区，想也没想就跟过来了![](static/image/smiley/bigface/57.gif)
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[そらの価値観 04.jpg](forum.php?mod=attachment&aid=ODkwNjF8NjE4Y2Q4OTV8MTYyNDY4OTM5N3wxODIzMHwzMTAzMA%3D%3D&nothumb=yes) *(1.1 MB, 下載次數: 6)*
+<ignore_js_op>[そらの価値観 04.jpg](forum.php?mod=attachment&aid=ODkwNjF8NjE4Y2Q4OTV8MTYyNDY4OTM5N3wxODIzMHwzMTAzMA%3D%3D&nothumb=yes) *(1.1 MB, 下載次數: 6)*
 
 [下載附件](forum.php?mod=attachment&aid=ODkwNjF8NjE4Y2Q4OTV8MTYyNDY4OTM5N3wxODIzMHwzMTAzMA%3D%3D&nothumb=yes)
 
@@ -56,7 +56,7 @@ TID：31030
 
 點擊文件名下載附件
 
-7.46 KB, 下載次數: 333</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+7.46 KB, 下載次數: 333</ignore_js_op>  
 
 # 3
 

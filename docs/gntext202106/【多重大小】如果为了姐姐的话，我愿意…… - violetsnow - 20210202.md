@@ -4,7 +4,7 @@
 
 TID：30005
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -98,7 +98,7 @@ TID：30005
 
 【我感觉到了……她们是可以的。】
 
-【虽然我不喜欢她们，但是这件事情是你和奥尔金娜小姐决定，那么我就作旁观和护卫好了。】隐藏着体内无限的力量，叶芙根妮娅正在以人类的身份护卫着帝国总帅的伊戈尔。而伊戈尔来到日本的第一天，就发现了他的目标们……<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+【虽然我不喜欢她们，但是这件事情是你和奥尔金娜小姐决定，那么我就作旁观和护卫好了。】隐藏着体内无限的力量，叶芙根妮娅正在以人类的身份护卫着帝国总帅的伊戈尔。而伊戈尔来到日本的第一天，就发现了他的目标们…… 
 
 # 2
 
@@ -234,7 +234,7 @@ TID：30005
 
 早已等在袜口的船员们就这样走出巨大的纤维海洋，从恐惧的深渊中摆脱出来。
 
-【伊戈尔阁下……您期待的事情，我会为您实现的，】<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+【伊戈尔阁下……您期待的事情，我会为您实现的，】 
 
 # 3
 
@@ -346,7 +346,7 @@ TID：30005
 
 【是你杀了伊戈尔同学吗？】
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
@@ -460,7 +460,7 @@ TID：30005
 
 这一瞬间，后藤健太明白了，伊戈尔手中掌握的并非一个帝国，而是两个女神，或者恶魔。
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -546,7 +546,7 @@ TID：30005
 
 其实这一部分开始显露出这篇文的原型人物是谁了（对了就是托洛茨基）
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
@@ -670,7 +670,7 @@ TID：30005
 
 最后的这首歌来自纳尔瓦营之歌（但是改动了）
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 
@@ -718,7 +718,7 @@ TID：30005
 
 10日本
 
-日本在二次大战后分为日本人民民主社会主义联邦和日本国，前者拥有北海道，而后者则和现在的日本并没有大区别。<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+日本在二次大战后分为日本人民民主社会主义联邦和日本国，前者拥有北海道，而后者则和现在的日本并没有大区别。 
 
 # 8
 
@@ -848,7 +848,7 @@ TID：30005
 
 然后伊戈尔来到与后藤健太约好的集装箱，看了看周围说
 
-【作为葬身之地虽然不太好，但是也足够了……那我们就开始吧】他带着一点点不安，但是更多的是轻蔑，走进了集装箱里。<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+【作为葬身之地虽然不太好，但是也足够了……那我们就开始吧】他带着一点点不安，但是更多的是轻蔑，走进了集装箱里。 
 
 # 9
 

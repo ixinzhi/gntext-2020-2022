@@ -4,13 +4,13 @@
 
 TID：30920
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 こおろぎ | https://www.pixiv.net/novel/show.php?id=9722454
 
-肌色の空を見上げるお話。<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+肌色の空を見上げるお話。 
 
 # 2
 

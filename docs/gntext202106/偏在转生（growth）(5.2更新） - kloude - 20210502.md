@@ -4,7 +4,7 @@
 
 TID：30794
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -70,7 +70,7 @@ TID：30794
 
 唉……
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

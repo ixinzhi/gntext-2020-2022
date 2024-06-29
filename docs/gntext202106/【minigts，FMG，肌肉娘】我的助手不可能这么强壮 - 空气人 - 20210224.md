@@ -4,7 +4,7 @@
 
 TID：30418
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -100,7 +100,7 @@ TID：30418
 
 　　经过几个月对莉亚力量的吃手，决定和我一起去海边游玩的莉亚却舍不得这栋研究所坐在彼此的回忆，于是她单手举起了数百米高的大楼，如同拎着手包一般轻松地和我一起前去海滨约会，原本挤满了游客的海滩，在一瞬之间就变成了我们的二人世界。
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

@@ -4,7 +4,7 @@
 
 TID：30766
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,7 +12,7 @@ TID：30766
 
 我的处女作，似乎也是我在gn看的人最多的文，《美好新生活》[https://giantessnight.com/gnforu ... iewthread&tid=28462](https://giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=28462)，很不幸的是，暂且有一点点可能也许大概八成有概率要坑了。主要原因是我个人有些失去了对文章剧情的把控了。但是以后，一定会再填上。
 
-似乎这篇文，有不少人喜爱到了极点，特别渴望看到续作，在某个巨佬的强烈要求下，我尝试新开一个if线，仍然是男主和陈汐的故事，这里先把已经写了部分放给大家<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+似乎这篇文，有不少人喜爱到了极点，特别渴望看到续作，在某个巨佬的强烈要求下，我尝试新开一个if线，仍然是男主和陈汐的故事，这里先把已经写了部分放给大家 
 
 # 2
 
@@ -104,7 +104,7 @@ TID：30766
 
 说完这句话后，陈汐轻快的爬开我的床铺，变回了原来的大小，伴随着一阵脚步的轰隆声，她跑出了房间，只留下了懵逼的我。
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -154,7 +154,7 @@ TID：30766
 
 “我爱你”
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
@@ -204,7 +204,7 @@ TID：30766
 
 “这是最后一次了。”
 
-陈汐说完，便缩小了自己的身体，我才发现我们在什么地方。<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+陈汐说完，便缩小了自己的身体，我才发现我们在什么地方。 
 
 # 5
 
@@ -400,7 +400,7 @@ TID：30766
 
 陈汐赤身裸体骑在我的身上，突然发现我眼神凝重，却不知道发生了什么，只能好奇的看着我，一言不发。
 
- “陈汐”
+“陈汐”
 
 念着她的名字，我的眼睛向下看了看，不知为什么，有一点羞涩，但我决定说出那句最脏的脏话。
 
@@ -408,7 +408,7 @@ TID：30766
 
 第一章（完）
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 

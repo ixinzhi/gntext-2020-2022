@@ -4,7 +4,7 @@
 
 TID：29606
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,7 +12,7 @@ TID：29606
 
 译名：传言中的馆舍
 
-老样子，还是上一作者的新作品。只是个开端介绍世界观的故事，可以期待一下后续。<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+老样子，还是上一作者的新作品。只是个开端介绍世界观的故事，可以期待一下后续。 
 
 # 2
 
@@ -24,11 +24,11 @@ TID：29606
 
 请支持DRE老师的付费作品
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
- <ignore_js_op>[20200911_170714.jpg](forum.php?mod=attachment&aid=ODU0ODR8Y2UyMjljYmJ8MTYyNDY5NDY4NHwxODIzMHwyOTYwNg%3D%3D&nothumb=yes) *(283.51 KB, 下載次數: 1)*
+<ignore_js_op>[20200911_170714.jpg](forum.php?mod=attachment&aid=ODU0ODR8Y2UyMjljYmJ8MTYyNDY5NDY4NHwxODIzMHwyOTYwNg%3D%3D&nothumb=yes) *(283.51 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=ODU0ODR8Y2UyMjljYmJ8MTYyNDY5NDY4NHwxODIzMHwyOTYwNg%3D%3D&nothumb=yes)
 
@@ -40,7 +40,7 @@ TID：29606
 
 2020-10-6 04:42 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![main_3ea797cd-ec5c-4811-999c-590317742e8b.jpg](img/85b55149b5d7b483d1900c3d0f156cd2.png "main_3ea797cd-ec5c-4811-999c-590317742e8b.jpg")](javascript:;)</ignore_js_op> <title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![main_3ea797cd-ec5c-4811-999c-590317742e8b.jpg](img/85b55149b5d7b483d1900c3d0f156cd2.png "main_3ea797cd-ec5c-4811-999c-590317742e8b.jpg")](javascript:;)</ignore_js_op>  
 
 # 4
 
@@ -494,7 +494,7 @@ TID：29606
 
 “嗯，拜托了。”
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -720,7 +720,7 @@ TID：29606
 
 我慌慌张张地挣扎着，想办法从鞋底里逃出来而扭动身体。幸运的是鞋跟底部的面积比鞋底要小很多。横着移动一个头部的话，总会有办法逃脱的吧。脸和头上的皮肤多少有点肿也没关系。总之，必须尽快离开鞋跟的鞋底。
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
@@ -920,11 +920,11 @@ TID：29606
 
 我的灵魂平静的睡眠即将到来，还差得远呢。
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 
-C篇的后续等出了后也会发在该帖子。算是提前占坑吧。施工完毕。<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+C篇的后续等出了后也会发在该帖子。算是提前占坑吧。施工完毕。 
 
 # 8
 

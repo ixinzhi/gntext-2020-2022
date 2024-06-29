@@ -4,7 +4,7 @@
 
 TID：30875
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,7 +14,7 @@ TID：30875
 
 八成缘已尽
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

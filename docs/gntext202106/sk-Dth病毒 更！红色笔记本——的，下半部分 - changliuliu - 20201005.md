@@ -4,7 +4,7 @@
 
 TID：29190
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -130,7 +130,7 @@ sk-Dth病毒      3\. （2）世界-夜店篇
 
 嘟……嘟……喂，您好
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -334,7 +334,7 @@ sk-Dth病毒      3\. （2）世界-夜店篇
 
 倩没有理会，转身走回了房间
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -346,7 +346,7 @@ sk-Dth病毒      3\. （2）世界-夜店篇
 
 这个被抓回来的小家伙……就是随机的，只能说他比较倒霉了，但是锦对其他小人却没有追杀或捕捉，所以……观众老爷意会到我的暗示了吗
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
@@ -458,7 +458,7 @@ glu～
 
 锦拎着高跟鞋，从前台下拿了一个盒子，回到了房间里。
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -468,7 +468,7 @@ glu～
 
 后面我会慢慢添加进去的哦
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
@@ -798,7 +798,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 “爸～妈～，呜……弟～”锦放声哭着，这哭声谁能知道这个纹着蟒蛇图案，眼神冰冷的女孩压抑了多久呢。
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 
@@ -808,7 +808,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 好的读者老爷，我在后面尽可能的去完善
 
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 8
 
@@ -820,7 +820,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 阿巴阿巴阿巴阿巴阿巴～
 
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 9
 
@@ -980,7 +980,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 “哎，毛手毛脚的……”锦推门进了房间，拿出一瓶啤酒喝着，等倩回来。
 
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 10
 
@@ -1078,7 +1078,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 “我终于找到你了。”倩看着柯，哽咽着，抽泣着。
 
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 11
 
@@ -1086,7 +1086,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 > 马上要到医院篇了，好期待啊，希望看到更多的温柔转暗的情节。
 
-好的观众老爷，后面我会再安排的，爱您哦<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+好的观众老爷，后面我会再安排的，爱您哦 
 
 # 12
 
@@ -1188,7 +1188,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 “你跟我客气个啥呢，真是的”锦说着，用手拍了拍倩的肩膀“好啦，好啦，回去了”说完锦就开门走了
 
-<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 13
 
@@ -1338,7 +1338,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 说完穿上衣服夺门而出。
 
-<title>14</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 14
 
@@ -1352,13 +1352,13 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 感谢您的喜欢，后续尽情期待呦～
 
-<title>15</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 15
 
 最近比较忙，可能做不到日更了，观众老爷们担待了
 
-<title>16</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 16
 
@@ -1498,7 +1498,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 “哈哈哈，你俩玩吧，我回去了，有空我再来啊”锦关上房门出去了
 
-<title>17</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 17
 
@@ -1750,7 +1750,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 随后她从盒子里拎出来一个小人，可怜的小家伙都还没醒，就被吞了下去。
 
-<title>18</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 18
 
@@ -1762,7 +1762,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 上班没有点，这个点更新属于常态问题不大
 
-<title>19</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 19
 
@@ -1964,13 +1964,13 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 “后勤后勤，我是锦，来打扫一下房间”锦对着对讲机说到，随后就把柯握在手里，带出了房间。
 
-<title>20</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 20
 
 *本帖最後由 changliuliu 於 2020-8-12 00:57 編輯*
 
-工作有点累，没那么多精力，更新可能慢了，望读者老爷们担待<title>21</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+工作有点累，没那么多精力，更新可能慢了，望读者老爷们担待 
 
 # 21
 
@@ -1978,7 +1978,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 > 只要还在更新就行了，楼主先以工作为主吧。
 
-感谢读者老爷理解，爱您，mua～<title>22</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+感谢读者老爷理解，爱您，mua～ 
 
 # 22
 
@@ -1988,7 +1988,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 问题不大，丢不了的，下雨知道往家跑
 
-<title>23</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 23
 
@@ -2210,7 +2210,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 “我们以前不是这样的，我们已经不再是我们了，呜——”
 
-<title>24</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 24
 
@@ -2438,7 +2438,7 @@ su～glu～锦轻轻一吸一咽，就把她吃了下去
 
 他又努力的扭动身体和四肢，但发现自己根本动不了，徒劳的挣扎了一会儿过后，困意，疲惫感袭来，柯在倩巨大的脚掌下昏睡了过去。
 
-<title>25</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 25
 
@@ -2790,7 +2790,7 @@ glu～倩用嘴接过小人，毫不犹豫的就吞了下去
 
 “来了来了”倩紧跟着锦，锁上门出去了
 
-<title>26</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 26
 
@@ -3048,7 +3048,7 @@ glu～倩用嘴接过小人，毫不犹豫的就吞了下去
 
 发完后，倩翻出药箱里的安眠药，大口的吞了下去
 
-<title>27</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 27
 
@@ -3304,7 +3304,7 @@ glu～倩用嘴接过小人，毫不犹豫的就吞了下去
 
 锦翻出一条手帕，把小家包了起来放到了大衣的内侧口袋里，转身离开了
 
-<title>28</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 28
 
@@ -3478,7 +3478,7 @@ glu～倩用嘴接过小人，毫不犹豫的就吞了下去
 
 “你好，小家伙，我叫锦，余生还请你多多指教”
 
-<title>29</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 29
 
@@ -3632,7 +3632,7 @@ glu～倩用嘴接过小人，毫不犹豫的就吞了下去
 
 倩默默的点了点头，转身出去，发动车子，带着理疗舱到了公寓里
 
-<title>30</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 30
 
@@ -3644,7 +3644,7 @@ glu～倩用嘴接过小人，毫不犹豫的就吞了下去
 
 所以想集思广益一下，看看读者老爷们对结局有什么
 
-<title>31</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 31
 
@@ -3858,7 +3858,7 @@ glu～倩用嘴接过小人，毫不犹豫的就吞了下去
 
 说完倩蹬上高跟鞋，带着柯马上奔向了医院
 
-<title>32</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 32
 
@@ -3872,7 +3872,7 @@ glu～倩用嘴接过小人，毫不犹豫的就吞了下去
 
 担待了
 
-<title>33</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 33
 

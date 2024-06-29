@@ -4,7 +4,7 @@
 
 TID：24918
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -156,7 +156,7 @@ TID：24918
 
 “嘻嘻，小家伙，在里面好好服侍，姐还要去接待其他客人呢。”艾姐整理一番衣裙后，便迈出轻快的脚步向门外走去。
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -208,7 +208,7 @@ TID：24918
 
 王军推开门走了进去，一股芬芳气息扑面而来，让他不自主的深深吸了一口气。
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 

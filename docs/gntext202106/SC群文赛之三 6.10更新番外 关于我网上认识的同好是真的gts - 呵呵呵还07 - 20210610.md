@@ -4,7 +4,7 @@
 
 TID：30848
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -18,7 +18,7 @@ TID：30848
 
 偶然得来灵感写的yy文，同时找了一个女同好稍微模拟了一下对话，更显真实，嗯，希望各位看官喜欢。更新番外
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -570,7 +570,7 @@ nice！
 
 最后，就顺便祝你们也早日找到属于自己的男/女友吧～
 
-                                                          end<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+end 
 
 # 3
 
@@ -580,7 +580,7 @@ nice！
 
 > 叶公好龙的故事是大家都耳熟能详的，而作为gts这种现实中不存在的东西的爱好者，可 ...
 
-非常感谢长评，这篇文章的灵感倒是来源于平日里与异性同好交谈是脑内yy，写之前倒没有想太多，但写着写着就会不自觉地把自己的感官与想法加到角色当中，所以会呈现出主角的纠结，当然啦，小黄文本不应该想太多，但也是欣喜于有读者可以看得那么仔细，真的非常感谢～<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+非常感谢长评，这篇文章的灵感倒是来源于平日里与异性同好交谈是脑内yy，写之前倒没有想太多，但写着写着就会不自觉地把自己的感官与想法加到角色当中，所以会呈现出主角的纠结，当然啦，小黄文本不应该想太多，但也是欣喜于有读者可以看得那么仔细，真的非常感谢～ 
 
 # 4
 
@@ -888,7 +888,7 @@ nice！
 
 谁知道呢。
 
-呵呵~那你们会期待我的不认真吗？<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+呵呵~那你们会期待我的不认真吗？ 
 
 # 5
 

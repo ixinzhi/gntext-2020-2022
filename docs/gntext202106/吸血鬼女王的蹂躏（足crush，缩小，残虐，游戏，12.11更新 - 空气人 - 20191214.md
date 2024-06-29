@@ -4,7 +4,7 @@
 
 TID：27619
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -112,7 +112,7 @@ TID：27619
 
 　　“啊啦~看来我们好像有访客呢~哦……沉浸在人家的美腿里不能自拔了吗？真是下流的生物~哦，不过这大概也要怪我对于你们来说实在太过美丽了吧~呐，你们不是来讨伐我的嘛~ ？为什么还不动手呀~？”
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -124,7 +124,7 @@ TID：27619
 
 是我，爱莉后续会有剧情的，现在就先不剧透了
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -270,7 +270,7 @@ TID：27619
 
 　　“那么，接下来玩什么好呢~？” 
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
@@ -280,7 +280,7 @@ TID：27619
 
 至少脑补成东方里大小姐二小姐那样的吧2333
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -500,7 +500,7 @@ TID：27619
 
 （完，最后可能为了突出调教的部分多了一些，希望大家喜欢）
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 

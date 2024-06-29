@@ -4,7 +4,7 @@
 
 TID：29480
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -22,17 +22,17 @@ TID：29480
 
 本次事故最大的问题在于仅由感染时间判断感染程度，是十分不负责任的行为。不过同时也观测到了T型寄生虫的几个新特征，对今后的抗寄生虫研究大有帮助。
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[PRS.PNG](forum.php?mod=attachment&aid=ODUxMTN8MGZhNmRiOWV8MTYyNDY5NDgxMnwxODIzMHwyOTQ4MA%3D%3D&nothumb=yes) *(603.42 KB, 下載次數: 20)*
+<ignore_js_op>[PRS.PNG](forum.php?mod=attachment&aid=ODUxMTN8MGZhNmRiOWV8MTYyNDY5NDgxMnwxODIzMHwyOTQ4MA%3D%3D&nothumb=yes) *(603.42 KB, 下載次數: 20)*
 
 [下載附件](forum.php?mod=attachment&aid=ODUxMTN8MGZhNmRiOWV8MTYyNDY5NDgxMnwxODIzMHwyOTQ4MA%3D%3D&nothumb=yes)
 
 2020-9-15 13:22 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![PRS.PNG](img/37151b5f4e7f275f4e2b3e8552fb165f.png "PRS.PNG")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![PRS.PNG](img/37151b5f4e7f275f4e2b3e8552fb165f.png "PRS.PNG")](javascript:;)</ignore_js_op>  
 
 # 3
 
@@ -42,7 +42,7 @@ TID：29480
 
 这就是寄生虫病的破坏性啊
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
@@ -52,7 +52,7 @@ TID：29480
 
 感谢资瓷！第一次写这种报告文形式的.
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -62,7 +62,7 @@ TID：29480
 
 谢谢支持哦。这个的后续嘛我也没想过怎么继续，倒是出个新病患感觉更有可能一些。。。
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
@@ -72,7 +72,7 @@ TID：29480
 
 哈哈哈，体表寄生类的感觉确实不错呢，感觉有很大的潜力![](static/image/smiley/girl/27.png)
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 

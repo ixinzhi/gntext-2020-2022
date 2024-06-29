@@ -4,7 +4,7 @@
 
 TID：30088
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -36,11 +36,11 @@ TID：30088
 
 “老...老婆...”我的思维慢慢停止运作，我想喊，但我的嗓子完全梗住，发出的声音宛若呢喃。她含着泪笑了：“完全没长大呢，真是个爱撒娇的家伙。”巨大的樱唇，带着湿热而让我安心的香气，轻轻地贴上了我的身体，片刻后又分开来“不可以难过哦......还有，老公，不许忘记我......”比起亲我，我倒是更渴望她现在就能把我吞下去，这样我就永远和她在一起了。但无论我现在怎么想，我都什么都做不了了：随着气体的进一步释放，黑暗钻进了我的脑内，大口地吞噬着我的意识，我妻子的脸庞在我眼前逐渐模糊起来。一开始，我还能听到仪器的运转声和她的心跳声，后来这声音也微弱了下去，直至万籁俱寂。
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[8d279f2476cce4f37b7ed0317f0ad513db06de96.jpg@1320w_1338h.jpg](forum.php?mod=attachment&aid=ODY4MzV8MTE5YzljOGV8MTYyNDY4ODcyOHwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(1020.88 KB, 下載次數: 2)*
+<ignore_js_op>[8d279f2476cce4f37b7ed0317f0ad513db06de96.jpg@1320w_1338h.jpg](forum.php?mod=attachment&aid=ODY4MzV8MTE5YzljOGV8MTYyNDY4ODcyOHwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(1020.88 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=ODY4MzV8MTE5YzljOGV8MTYyNDY4ODcyOHwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
@@ -56,7 +56,7 @@ TID：30088
 
 普瑞塞斯
 
-[![普瑞塞斯](img/de152643c2273b767353b3f5d5f8d8a4.png "普瑞塞斯")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![普瑞塞斯](img/de152643c2273b767353b3f5d5f8d8a4.png "普瑞塞斯")](javascript:;)</ignore_js_op>  
 
 # 3
 
@@ -102,7 +102,7 @@ TID：30088
 
 熟悉的湿热香气轻柔地按摩着我。这是普瑞塞斯！老婆！我几次想动几下，但全身发寒，我的体温过低，无法控制自己的身体。一切全都是模糊的状态，我感觉一张可以弯曲的红色的温暖湿毛毯把我卷了起来，拉到什么地方，这里虽漆黑一片，但是温暖潮湿，而且还有淡淡的香气，依稀的滴水声。我一定来到了地下温泉，湿毛毯贴心地为我搓起了背。这一定是幻觉，但是太舒服了，我不禁发出了低低的呻吟声。
 
-“呀！把他含在嘴里的感觉真的好冰！”特蕾西娅在心里小声地抱怨道。<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+“呀！把他含在嘴里的感觉真的好冰！”特蕾西娅在心里小声地抱怨道。 
 
 # 4
 
@@ -132,7 +132,7 @@ TID：30088
 
 “诶？”
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -146,7 +146,7 @@ TID：30088
 
 我的心已经被普瑞塞斯和特蕾西娅夺走了，此生无悲喜.jpg
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
@@ -160,7 +160,7 @@ TID：30088
 
 顺便，直接设定博士的名字就是“博士”吧，我真的不喜欢给角色起名。![](static/image/smiley/girl/12.png)
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 
@@ -182,7 +182,7 @@ TID：30088
 
 学会进行自我吐槽，这是我在研究所里学会的打发时间最重要的技能。现在，我终于有大把的时间将其广泛应用了：当初，我要求特蕾西娅吃我只是一时上头，希望寻死而已，没想到一不小心发掘了一个主要XP出来。更讽刺的是，特蕾西娅的源石技艺包括对自身的体液调节，换句话说，她可以让自己的消化液对我完全无影响，甚至可以转成营养液来滋养我。而她的胃壁软得如席梦思一般，这里又没有空气质量问题。一个寻死上头之人，竟然给自己找到了全泰拉最安全的庇护所，这是我万万没想到的。另外，殿下舌头的按摩技术肯定专精三了，我本以为自己还能再坚持的久一点的...嗯...至少我不会再喊什么口号了，这是好事。以前，我过得总是“研究所---家”两点一线的生活，现在又过上了“特蕾西娅的嘴---特蕾西娅的胃”两点一线的生活。这说明什么？历史的发展是有规律的。
 
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 8
 
@@ -244,7 +244,7 @@ TID：30088
 
 我感激地揉了揉特蕾西娅的胃。
 
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 9
 
@@ -328,13 +328,13 @@ TID：30088
 
 她已经下定了决心。
 
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 10
 
 妈耶，才写这么点就累死了，我也想要这样的普瑞塞斯和特蕾西娅治愈我啊![](static/image/smiley/girl/12.png)。
 
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 11
 
@@ -412,7 +412,7 @@ TID：30088
 
 “我会的，老公，请多指教。”
 
-<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 12
 
@@ -426,13 +426,13 @@ TID：30088
 
 写文真累啊，不过每次重读自己写的段落，总会高兴不已呢！也希望YJ能补充更多关于殿下的故事（最好是糖，要是特蕾西娅真的和博士有那种倾向的话，我直接原地升天！）![](static/image/smiley/girl/27.png)。然后必然爆更不可避。
 
-<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 13
 
 ![](static/image/smiley/girl/25.png)之前没注意，怎么UB属性没打上啊，我说标题怎么总是不能完全显示。
 
-<title>14</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 14
 
@@ -488,7 +488,7 @@ TID：30088
 
 空气打印机（日常用品型）：普瑞塞斯和博士共同开发的作品，里面存储了人类世界中常见的日用品的打印图纸，一经使用，它可以固化空气，以此为原材料，打印出所需要的日用品，但也有一个缺点，打印产品的有效时间不会超过两个小时，时间过了，将会再度分解为空气。
 
-<title>15</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 15
 
@@ -502,7 +502,7 @@ TID：30088
 
 你可以猜一猜![](static/image/smiley/girl/27.png)，感谢你的回帖，我才发现当初有一个元素没打在标题上![](static/image/smiley/girl/23.png)
 
-<title>16</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 16
 
@@ -560,13 +560,13 @@ TID：30088
 
 在特蕾西娅眼中，眼前的博士一副楚楚可怜的模样，“可爱”得让她恨不得现在就把他吞到肚子里去。【啊，他今夜绝对跑不掉了！他会完完全全成为自己的！而自己也将把第一次给他！】【也多亏了那个催情熏香的加成，要是之前这个榆木脑袋能主动一点，自己也不必做这么羞人的事情了】特蕾西娅含羞地想到。
 
-<title>17</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 17
 
 我得缓一会儿，写文章给自己写兴奋了还行![](static/image/smiley/girl/03.png)。啊，让我好好想想，该怎么写两个人的初夜吗？毕竟一大一小，可以玩玩比较涩的Cosplay啊![](static/image/smiley/girl/07.png)。
 
-<title>18</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 18
 
@@ -706,7 +706,7 @@ TID：30088
 
 看着头顶的子宫口，它正紧闭着，不让一丝光线透入，我顿时成了苦瓜脸：“看来，我以后真的是死定了。”
 
-<title>19</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 19
 
@@ -762,13 +762,13 @@ TID：30088
 
 “唔...”
 
-<title>20</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 20
 
 啊！失算了，写个重返雷姆必拓居然拖了这么久，果然我还是适合写日常的文章啊，剧情推进什么的真的难写![](static/image/smiley/girl/12.png)。
 
-<title>21</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 21
 
@@ -778,7 +778,7 @@ TID：30088
 
 还真别说，这篇文章的创作的出发点就是合理代入gts元素到方舟目前的剧情，从而让博士拯救自己的前前妻（普瑞塞斯）和前妻（特蕾西娅）的。所以办法嘛，放心，当然是最优先考虑好的![](static/image/smiley/girl/07.png)。
 
-<title>22</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 22
 
@@ -882,7 +882,7 @@ TID：30088
 
 “哈哈，老婆，其实我都想好了，等把‘罗德岛’号挖出来了，我就想办法修复里面的智能AI系统，她可以帮助我掌控战场的局势，智能模拟可以模拟战场局势，有效利用的话，肯定能帮助我们减少冲突中的流血。我也可以利用这个系统好好学习战术指挥。啊，对了，我想，即使在军人中间，也会有像我一样，迷茫的人吧，也许我到时候能帮助他们...后面的计划是...”
 
-<title>23</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 23
 
@@ -898,7 +898,7 @@ TID：30088
 
 哎，接着码字了，我也在考虑，是否要和凯爹来个激情互动呢![](static/image/smiley/girl/27.png)（博士：不不不，老婆，这是作者说的，我并不是要搞外遇，请不要生气，呜...‘吞咽声’)
 
-<title>24</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 24
 
@@ -952,7 +952,7 @@ TID：30088
 
 “早点回来，我每时每刻都会想你的！”我望着这道地狱之门，流着泪说道。
 
-<title>25</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 25
 
@@ -1008,7 +1008,7 @@ TID：30088
 
 妈的，就贱这一次...我在心里暗骂道。
 
-<title>26</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 26
 
@@ -1070,7 +1070,7 @@ TID：30088
 
 “凯尔希这个女人，真是“炎国粗口”天克我...”这是我被凯尔希吞下肚前，脑中闪过的最后一个想法。
 
-<title>27</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 27
 
@@ -1082,7 +1082,7 @@ TID：30088
 
 我开玩笑的，有始有终才是真啊![](static/image/smiley/girl/07.png)
 
-<title>28</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 28
 
@@ -1140,7 +1140,7 @@ TID：30088
 
 “尽管不是那么专业，但还是有让人值得称道的地方。你确实在努力着呢。”凯尔希走进自己的卧室，把她的枕头拿出来，垫到我的身下。再把自己的枕巾叠了几叠，给我当作被子盖上。她关了灯，然后带上地图室的门，“夜已经很深了，晚安，做个好梦，博士。”
 
-<title>29</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 29
 
@@ -1148,11 +1148,11 @@ TID：30088
 
 地图室，早上七点“嗯...睡得真香啊！”我起床了，伸了一个懒腰之后，我去挠动自己有点杂乱的头发：“哎呀，终于到新的一天了，老婆今天就应该回来了吧...嗯...终于，不用再跟那个大猞猁共处一屋啦。好日子，来临啦！”“你起来了？”一个如丧钟般的声音在我背后响起，我像一只被踩了尾巴的菲林，跳了起来：“凯...凯...凯尔希！早...早...早上好！呃，你怎么在这里。”“我看你睡得如何。”凯尔希还是那么面无表情，“早餐在桌子上了，你要是再不醒来，我可能会因为不想第二次热早餐而把你强制叫醒，不过你醒的还是时候，快去吃饭吧，一会儿早餐就凉了。”“啊...好...好...”我就像是一个开小差时被母亲抓个正着的孩子，不敢去直视她翠绿的眼睛。“你醒了的话，我的枕头和枕巾我就拿走了。”凯尔希继续说，“另外，吃完饭后过来找我，我有话对你说。”唔...这次惨了，肯定是要数落我昨天睡着了的事，我明明跟她说‘不要小看我’，‘我这就努力给你们看’，转眼就没能坚持多久。更倒霉的是，凯尔希还给我送枕头，这是有什么暗示吗？在各种胡思乱想下，我惴惴不安地完成了洗漱。早餐是烤全麦面包，火腿煎鸡蛋配一点黑胡椒粉，以及一杯可可牛奶，凯尔希确实也很厉害，给我分的面包和火腿煎蛋恰巧能填饱我的肚子，一些热可可让我的全身充满暖意。有心了，不过......我一想到接下来大概率要被凯尔希训斥一通，心情就好不起来。不过，特蕾西娅就要回来了，要不要假装自己闹肚子，去厕所待个几个小时？不，不，未来肯定和凯尔希低头不见抬头见，我还不想把关系搞得那么僵，不然特蕾西娅也会烦恼的。哎～算了，是福不是祸，是祸躲不过，死就死吧！想着，我飞到凯尔希的办公桌前。“凯尔希勋爵，我过来找你了。” “坐吧，还有，叫我凯尔希就可以了。”“啊，好的，凯尔希。”我准备飞向凯尔希办公桌另一侧的椅子。“等一下，你坐这里。”凯尔希指了指自己的办公桌。“.......”妈耶，这是让我死啊，我要是坐在那里，和凯尔希距离不过一尺。她要想拍死我，我都不够有时间反应的。我还是不去了吧...但对上凯尔希的眼神，我不由得心中一凛，乖乖地飞到她桌上坐下。不管了，苟命要紧，苟到特蕾西娅回来就是胜利！“刚才的早餐如何？”“啊，很不错，谢谢。”“殿下一会儿就回来了。”“啊，对。”我表现得就像是一个机器人，生怕说错半句话而惹凯尔希生气。凯尔希叹了口气，她知道我在担心什么：“昨天，是我态度不好。还请不要介意，我向你道歉。”这倒是大大出乎了我的意料，我一时被弄得手足无措：这个高傲的猞猁，居然会道歉？我结结巴巴地回复：“啊，不不，没什么，没什么，我我我...我接受你的道歉。”“我是真诚地向你道歉，博士。我必须承认，我的做法有些偏颇。这是我基于之前的经历所形成的一种做事方式，年龄越大，见得越多，脾气越差。而且我是在殿下身边，我的所做所为都是为了最大程度地减小殿下所面临的风险，即使这会伤害一些人。”“我接受你的道歉，我也理解你的立场，凯尔希。不过我希望，在以后，我们在什么方向再出现什么认知上的分歧。我希望我们能平心静气地坐下来，好好谈谈，而不是互相攻讦。”“我接受你的意见，博士，”凯尔希喝了一口热咖啡，“想听听我的一些故事吗？”“嗯，不过，我先感兴趣的是，昨天晚上，你...”“你还真是个关心人的家伙。”凯尔希的表情松弛了一些，“我睡了四个小时，工作完成的比预期的早，早饭也吃过了。”我因为自己的心思被看穿，红着脸坐在原地，一言不发。“我曾经在乌萨斯的一座城市当一所研究院的院长，我们的研究项目主要是针对一个古代文明的特殊装置，这个装置的工作原理至今不明，但是...我们设法应用并储存了一小部分能源，而这一小部分能源，却足以驱动那座移动都市前进。”“多久以前的文明？” “和你一个时代的，”凯尔希接着说，“你的部分我稍后会提到。”“我们最初是欣喜，但很快，欣喜变成了无边的恐惧。乌萨斯是一个好战的国家，如果这种能量被应用于战争中，不，他们一定会不计代价的把这种力量应用到自己的军队上，应用到战争中。我们必须封存这种力量。可是，我们的团队里混进了告密者，我们被监禁，我们被严刑拷问，但每一个人都是为了和平，半个字都不会吐露。最后，秘密警察瞄准了谢尔盖——他有些懦弱，最重要的是，他有一对儿女。谢尔盖很快就屈服了，军方派了专人进来，他们却对这个完全不属于这里的装置一无所知。我们被押解到那里，我们被强迫着为他们工作，但是大家都没有屈服，终于，在一个雨夜，我带领着所有人，我们烧掉了所有的研究数据，我们封停了那个装置，我想带着他们逃出来。但最后，他们或是被军警追杀，或是饿死，冻死在荒原上，逃到卡兹戴尔的，就只有我一个...那个时候，是殿下收留了我，她的理想，她的信念，是我要守护的东西，我要跟随她，去解救感染者，只有做这种事，才能赎清我的罪行。”“你有什么罪行？”“那些年轻的研究员，他们不应该死的...如果，我早日知道那个装置的巨大能量，我就可以篡改数据，假装这是一个无用的研究。如果，我早知道，队伍里有内谍，我就不会让他吐露半个字。我还应该早想到谢尔盖的，我当初不应该只考虑他在研究上的造诣，而忽略了他人性的弱点。你知道吗？这是我一生的罪行，我杀死了他们，我将毕生为我犯下的错误赎罪，而我不会让这件事第二次发生在我眼前了，博士。”“我懂了，所以你才会对我态度那么严苛。”“是的，就在几个月前，我从这里的遗迹把你挖了出来。殿下听到后，立刻从卡兹戴尔秘密赶了过来，就把你从我这里接走了。我没有时间去判定你到底是一个什么样的人，但是你是和殿下最亲近的人。我无法理解，殿下她，为什么那么相信你。你让我感到恐惧，博士。尤其是我知道，你和之前我在乌萨斯研究的装置是一个时代的人时。你又掌握着多少强大的科技呢？谁是你真正的同胞呢？你的种群特征不能匹配现今的任何种群。你是古代的人类，我不能了解你的思维，是否和今天的我们一致，你又会有什么样的人性的弱点呢？我们的敌人，如果他们真的想加害殿下的话，如果向你开出一个足够诱人的条件，你是否会接受呢？”“凯尔希，我...”我不知道如何解释，我完全理解凯尔希的立场，“我确实，可能没法和你用通俗的话解释，但是我和特蕾西娅的关系，非比寻常，这一点，从我那个时代就已经注定了。我和特蕾西娅走到今天，都是我们注定的事。我...不奢求和你对话一次，就能取得你对我的信任。你的意见也是我所努力的一个绝佳的参考方向，我希望你能帮我，我会用自己的行为向你证明的。”“我对之前向你表示恶意而道歉，但是，信任不是一朝一夕就能建成的，我会保持对你质疑的权力。另外，我会全心全意向你提供帮助的...” “如果你真的愿意与我们这些感染者同命运...”她小声地补充道。“凯尔希...谢谢你。”凯尔希微微点了点头。她突然抓住我，送到自己的双唇上，飞快点了一下，然后把我托在手里：“还有一件私人的事情，这是我为昨天的事向你表示的谢意。”好吧，这婆娘害羞的样子，还是有几分姿色的。我捂着脸，有些惊讶：“凯尔希，你真的不必这样的。呃，不说这个，我的..." 正当我想问凯尔希，我的衣服有没有干的时候，门被推开了，一个淡粉色的倩影走了进来：“凯尔希卿，博士卿，二位辛苦了！我回来了！”特蕾西娅看到我站在凯尔希手上，正与凯尔希近距离对视时，她有些发愣。“哎？凯尔希卿，博士卿，你们在干什么？” 夫妻二人共同沐浴后，我和特蕾西娅躺在床上，我知道特蕾西娅连夜折返，不免有些心疼，轻轻地抚着她的脸庞...刚才在浴室中，特蕾西娅给我简要讲了一下他们将凶手绳之以法的过程，奇怪的是，他们的作战风格并非像传统的雇佣兵，反而像是正规的萨卡兹军人，很可惜的是，那帮雇佣兵最后自知无力逃脱，全都服毒自尽了，没有什么标识，刺青可以证明他们的身份。特蕾西娅向我表达了担忧，我理解的，如果他们并非为雇佣兵，而是假冒身份，为了什么目的，最近才渗透到雷姆必拓的萨卡兹军人，那么军队里面，就存在巨大的不稳定因素了。而这个因素，很有可能就是那个好战的特雷西斯了。如果特雷西斯控制了不少军队，并以此发难，那么卡兹戴尔就有爆发内战的风险。从一件小事，却隐隐窥见巨大危机的冰山一角，即使还没有证实，特蕾西娅的心情也并不好受。我轻声安慰着她，告诉她我会一直与她同在，特蕾西娅感激地吻了吻我，我正想继续和特蕾西娅说几句情话，让我们继续沉溺在甜蜜中的时候，特蕾西娅的小鼻子动了动，她问道：“老公，从刚才给你洗澡的时候我就想问了，你的身上怎么有一股咖啡的气味啊，跟凯尔希卿喝的那种口味很像...而且，还有一股淡淡的酸味，还有，我送你过去的时候你明明是好好穿衣服的，回来的时候你却是裹在手帕里的...亲爱的，你不会是掉到凯尔希卿的咖啡杯里又掉进酸奶罐中了吧？”“啊哈哈，这个，一定意义上，也没错...”“对了，之前把你从凯尔希卿那里接回来时，凯尔希卿有点脸红，而你身上，她的唇印还没擦干净呢...”“啊？啊？啊？！凯尔希！我就说了，不用非得强行做到那一步，害得我没来得及脱衣服就进去了，结果都湿了（指凯尔希强行工作而低血糖的事）。而且不要亲我的，这下全露馅了吧！”“嗯...可能我当时看错了，不过呢...”“.......老婆（害怕，博士限定.jpg）。”“凯尔希卿的胸罩是什么颜色的？”“天蓝色的。”我下意识脱口，然后觉得大事不妙...“亲～爱～的～，你还有什么要～补～充～的～吗？”“有！凯尔希的胸部没老婆你的大，也没你的软...呃...这个...我不是那个意思。”我本来想趁机夸一下特蕾西娅的，但好像越描越黑了，特蕾西娅的表情已经变得相当不妙了...特蕾西娅的眼睛眯缝起来，露出了天真无邪的笑容。哈哈哈...这一次我可死定了呐。“老...老婆，我可以解释清楚～”“当然啦，老公，你～必～须～解释清楚呢，不过呢，不是现在。因为现在，我需要给坏孩子一点小小的惩罚...” 说罢，特蕾西娅把我从枕头上轻轻拨到床上，她翻过身来，两只小山般大小的正义就悬在我的头上...她对我露出笑容，那表情，就像捕食者知道自己的猎物无法从自己身边逃脱一样。我惊恐地发现，特蕾西娅眼中的白色菱形又一次变成了桃心状...“老～公...请全身心地染上...我的味道吧♥️♥️♥️！”说罢，特蕾西娅雪山般的胴体向我压了下来...“呃，呃，老婆，你这样...我有点怕...啊，老婆，不要生气啊...求求你...我错了...凯尔希！凯尔希！快点过来解释啊！啊！啊！啊啊啊啊啊～～～呜呜呜～～～♥️”可是，我再怎么叫喊也没有用了，全泰拉已经没有人可以阻止特蕾西娅对我实施最严酷的“家法”了...很快，屋子里发出两人性福的呻吟声，然后，就只能听到特蕾西娅的声音了...凯尔希靠在门外，轻轻地呼了一口气。她手里拿着的，正是我那刚刚干燥下来的衣物。她把我的衣物轻轻地攥在胸前，脸上不由得浮出了一抹淡淡的红色。 凯尔希篇暂时结束了，接下来就是普瑞塞斯+特蕾西娅的混合双打篇了![](static/image/smiley/girl/30.png)。博士的肾...嘿嘿嘿嘿嘿....![](static/image/smiley/girl/30.png)
 
-<title>30</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 30
 
- <ignore_js_op>[d107d5cfa0d31d7b12ae37e09efc587171e70132.jpg@1320w_1028h.jpg](forum.php?mod=attachment&aid=ODY4MzZ8N2Q5NGVmNGR8MTYyNDY4ODczOXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(604.28 KB, 下載次數: 1)*
+<ignore_js_op>[d107d5cfa0d31d7b12ae37e09efc587171e70132.jpg@1320w_1028h.jpg](forum.php?mod=attachment&aid=ODY4MzZ8N2Q5NGVmNGR8MTYyNDY4ODczOXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(604.28 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=ODY4MzZ8N2Q5NGVmNGR8MTYyNDY4ODczOXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
@@ -1160,7 +1160,7 @@ TID：30088
 
 凯尔希 博士 特蕾西娅
 
-[![凯尔希 博士 特蕾西娅](img/b7937c6152d23732b65a3602784af929.png "凯尔希 博士 特蕾西娅")](javascript:;)</ignore_js_op> <title>31</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![凯尔希 博士 特蕾西娅](img/b7937c6152d23732b65a3602784af929.png "凯尔希 博士 特蕾西娅")](javascript:;)</ignore_js_op>  
 
 # 31
 
@@ -1170,7 +1170,7 @@ TID：30088
 
 谢谢支持![](static/image/smiley/girl/07.png)！我会继续努力的！
 
-<title>32</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 32
 
@@ -1180,7 +1180,7 @@ TID：30088
 
 孩子很喜欢，要被揍死了。
 
-<title>33</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 33
 
@@ -1266,13 +1266,13 @@ TID：30088
 
 “这就是我们的亲生女儿，谢谢你，特蕾西娅...谢谢你给了我这无边的幸福，谢谢你给了我一个完整的家...我们来把阿米娅抚养成人吧。无论将来有什么困难，我们都在一起，一家人，一起......”
 
-<title>34</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 34
 
 没想到吧，小女孩就是我兔兔哒！这是我个人猜想博士和特蕾西娅是怎么认识阿米娅的，反正等官方出真剧情时，我再吃书也不迟。![](static/image/smiley/girl/16.png)
 
-<title>35</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 35
 
@@ -1334,7 +1334,7 @@ TID：30088
 
 你说我刚才非要瞎参和干什么呢？
 
-<title>36</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 36
 
@@ -1344,11 +1344,11 @@ TID：30088
 
 ![](static/image/smiley/girl/30.png) 特蕾西娅 普瑞塞斯![](static/image/smiley/girl/30.png)
 
-                                 （博）（士）
+（博）（士）
 
 想想都刺激，不过有点难写啊![](static/image/smiley/girl/28.png)。
 
-<title>37</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 37
 
@@ -1358,7 +1358,7 @@ TID：30088
 
 谢谢你的建议，已加日期![](static/image/smiley/girl/07.png)。
 
-<title>38</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 38
 
@@ -1438,11 +1438,11 @@ TID：30088
 
 “我知道的哦，所以说...”她笑了，那笑容如春风拂面，如细雨润物，“欢迎回家，我的爱人。”
 
-<title>39</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 39
 
- <ignore_js_op>[IMG_3797.JPG](forum.php?mod=attachment&aid=ODY5Njd8ZTZkMjY0NDd8MTYyNDY4ODc0NnwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(434.35 KB, 下載次數: 0)*
+<ignore_js_op>[IMG_3797.JPG](forum.php?mod=attachment&aid=ODY5Njd8ZTZkMjY0NDd8MTYyNDY4ODc0NnwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(434.35 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODY5Njd8ZTZkMjY0NDd8MTYyNDY4ODc0NnwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
@@ -1454,19 +1454,19 @@ TID：30088
 
 2021-1-25 06:55 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![IMG_3796.JPG](img/6fd172b2cfca9417f770b0df6034f6bf.png "IMG_3796.JPG")](javascript:;)</ignore_js_op> <title>40</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![IMG_3796.JPG](img/6fd172b2cfca9417f770b0df6034f6bf.png "IMG_3796.JPG")](javascript:;)</ignore_js_op>  
 
 # 40
 
 呃，道个歉，当初写这个文章的时候，明明是选定了两个标题，“博士的过去”和“巴别塔往事”，但是最终定的是后者，标题只在word上改了，这里没改，今天把它修订了，不要误会成我写新文了啊![](static/image/smiley/girl/09.png)。
 
-<title>41</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 41
 
 在Lofter上找普瑞塞斯和特蕾西娅的图片，结果搜到一堆刀文，我人都不好了![](static/image/smiley/girl/12.png)。
 
-<title>42</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 42
 
@@ -1520,13 +1520,13 @@ TID：30088
 
 “放心，他这辈子，都跑不出我们姐妹的手掌心。”普瑞塞斯笑着贴上了摸特蕾西娅的头。
 
- 我尽情地释放着自己全身的精华，我把自己的白浊用力地喷射到普瑞塞斯胃壁内的每一个角落。
+我尽情地释放着自己全身的精华，我把自己的白浊用力地喷射到普瑞塞斯胃壁内的每一个角落。
 
 “真有活力啊，小弟弟，就让大姐姐把你咕噜咕噜地消化掉吧。”
 
 话音未落，我感觉腿部一软，我瘫倒在普瑞塞斯的消化液里，啊，开始了啊，现在要做的就是要放松。我感觉全身的知觉正在消失，很快，消化液把我淹没了。
 
- “嗯，好像差不多了呢，好，让我可爱的学弟在我体内流一圈吧。”
+“嗯，好像差不多了呢，好，让我可爱的学弟在我体内流一圈吧。”
 
 “姐姐，你不会真的，消化了老公吧？”特蕾西娅有些担心地问道。
 
@@ -1536,9 +1536,9 @@ TID：30088
 
 “嗯，我感受到学弟在我全身流转，啊，我全身都暖呼呼呢，让我感觉一下...看来学弟身上也一点源石反应都没有呢，果然吗，看来这种所谓的源石，对我们毫不起效果呢...”普瑞塞斯喃喃自语道。
 
- 我的意识又开始恢复了，我感觉得到，自己变成了奶白色的粘稠液体，周围奶香四溢。呃...我知道这次在哪里了，自己成了啥了...接下来的剧情，我可以想像了...哎，前路漫漫啊...
+我的意识又开始恢复了，我感觉得到，自己变成了奶白色的粘稠液体，周围奶香四溢。呃...我知道这次在哪里了，自己成了啥了...接下来的剧情，我可以想像了...哎，前路漫漫啊...
 
-<title>43</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 43
 
@@ -1546,7 +1546,7 @@ TID：30088
 
 接下来几天又要忙了，尽量抽时间更新吧![](static/image/smiley/girl/08.png)。这部分是Vore，其实还有下一半，UB的部分。但是这一半我给兴奋了还行![](static/image/smiley/girl/11.png)，而且今天没什么时间了，回头尽快补上。
 
-<title>44</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 44
 
@@ -1656,7 +1656,7 @@ TID：30088
 
 “我幸福的，感觉跟做梦一样...如果是梦，就让我死在这里吧，如果...如果是真的...啊～啊～我亲爱的老婆们哦，我会拼尽我的生命...守护你们的...一辈子...不，是永远...永远...”我躺在特蕾西娅和普瑞塞斯的身体里，喃喃自语道。
 
-<title>45</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 45
 
@@ -1668,7 +1668,7 @@ TID：30088
 
 不过这不是博士的结婚后日谈，前面虽然一片祥和，后面该发刀的地方还是得发刀，毕竟方舟世界观...再怎么写同人，也得符合剧情![](static/image/smiley/girl/03.png)，这就很TMD胃痛。
 
-<title>46</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 46
 
@@ -1678,7 +1678,7 @@ TID：30088
 
 我要是咕咕太久了，就肯定被两位老婆拿去煲汤了![](static/image/smiley/girl/09.png)。
 
-<title>47</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 47
 
@@ -1690,7 +1690,7 @@ TID：30088
 
 有了！啊，万能的PRTS系统可以上线了，我可以多写写战斗模拟这样的![](static/image/smiley/girl/30.png)，揭露博士变强的秘密。还可以写写番外。
 
-<title>48</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 48
 
@@ -1708,11 +1708,11 @@ TID：30088
 
 等等，那这样老婆顺序的排位不就出来了吗![](static/image/smiley/girl/06.png)。0号是博士，1号是阿米娅（这个是女儿，不算），2号是普瑞塞斯，3号是特蕾西娅...好耶！一家四口成了！磕到了磕到了![](static/image/smiley/girl/07.png)！
 
-<title>49</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 49
 
- <ignore_js_op>[博士.jpg](forum.php?mod=attachment&aid=ODcwMTV8NzJhYjBiZjR8MTYyNDY4ODc1NXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(1.02 MB, 下載次數: 0)*
+<ignore_js_op>[博士.jpg](forum.php?mod=attachment&aid=ODcwMTV8NzJhYjBiZjR8MTYyNDY4ODc1NXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(1.02 MB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODcwMTV8NzJhYjBiZjR8MTYyNDY4ODc1NXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
@@ -1724,7 +1724,7 @@ TID：30088
 
 2021-1-28 05:44 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![特蕾西娅.jpg](img/8198e7574418f95400d7a3277a31bdae.png "特蕾西娅.jpg")](javascript:;)</ignore_js_op> <title>50</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![特蕾西娅.jpg](img/8198e7574418f95400d7a3277a31bdae.png "特蕾西娅.jpg")](javascript:;)</ignore_js_op>  
 
 # 50
 
@@ -1848,17 +1848,17 @@ TID：30088
 
 “妹妹，正好周末了，就放松一下吧，一会儿我们和老公一起做一个游戏...它的名字叫，手指糖游戏...”
 
-这算是一个番外，也算是一个小尝试吧，赫尔弥兹的长相请参考这张图的右侧女性，别说，把这张图看成普瑞塞斯，博士，赫尔弥兹三个人一起玩手指糖游戏还真是毫无违和感![](static/image/smiley/girl/24.png)...<title>51</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+这算是一个番外，也算是一个小尝试吧，赫尔弥兹的长相请参考这张图的右侧女性，别说，把这张图看成普瑞塞斯，博士，赫尔弥兹三个人一起玩手指糖游戏还真是毫无违和感![](static/image/smiley/girl/24.png)... 
 
 # 51
 
- <ignore_js_op>[手指糖游戏.jpg](forum.php?mod=attachment&aid=ODcwMTZ8ZWE1Y2ViYzB8MTYyNDY4ODc1NXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(231.95 KB, 下載次數: 0)*
+<ignore_js_op>[手指糖游戏.jpg](forum.php?mod=attachment&aid=ODcwMTZ8ZWE1Y2ViYzB8MTYyNDY4ODc1NXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(231.95 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODcwMTZ8ZWE1Y2ViYzB8MTYyNDY4ODc1NXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
 2021-1-28 08:19 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![手指糖游戏.jpg](img/af27da5a14b8743b56b74c901ee6e6fb.png "手指糖游戏.jpg")](javascript:;)</ignore_js_op> <title>52</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![手指糖游戏.jpg](img/af27da5a14b8743b56b74c901ee6e6fb.png "手指糖游戏.jpg")](javascript:;)</ignore_js_op>  
 
 # 52
 
@@ -1866,7 +1866,7 @@ TID：30088
 
 才怪嘞！！！！！我写之后才发现，主动的大姐姐她不香吗？！因为我（博士）可是1000%的年上控啊![](static/image/smiley/girl/27.png)，这种温柔/侵略性的大姐姐我是没法抵御的。我要和这种大姐姐生一百个孩子![](static/image/smiley/girl/27.png)！！！！！
 
-<title>53</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 53
 
@@ -1910,7 +1910,7 @@ TID：30088
 
 “我把这个方法，命名为‘重生’，这段时间，是特蕾西娅的排卵日，我的计划是，让你钻入特蕾西娅的子宫中，再二次缩小到精子大小，钻入特蕾西娅的卵细胞中。特蕾西娅的卵细胞会把你的身体分解掉，然后提取你的基因和记忆，形成一个新的受精卵...十个月后，你就会获得新生。根据计算机程序模拟，那时，你就会拥有特蕾西娅的一部分力量，而这力量足以帮助你恢复正常的身躯大小，甚至将来还可以自由变大变小。”
 
- “太好啦！那么风险呢？风险是什么...”我等不及要去尝试这种方法了，啊，原来这些天是特蕾西娅的排卵日，怪不得她这么娇羞。啊！普瑞塞斯真是我的贤内助，这么异想天开的办法都能想到，了不起！不过，她提到风险还能是什么呢？
+“太好啦！那么风险呢？风险是什么...”我等不及要去尝试这种方法了，啊，原来这些天是特蕾西娅的排卵日，怪不得她这么娇羞。啊！普瑞塞斯真是我的贤内助，这么异想天开的办法都能想到，了不起！不过，她提到风险还能是什么呢？
 
 “风险就是，根据计算机的计算，你只有24%的概率能成功到达终点，如果不能的话...”
 
@@ -1952,7 +1952,7 @@ TID：30088
 
 “我突然想到一个很严肃的问题。”我突然开口，一副一本正经的样子，“要是我和特蕾西娅的卵细胞结合，再重生的话，我的女王老婆岂不是成为我的女王老妈了？”
 
-<title>54</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 54
 
@@ -1962,19 +1962,19 @@ TID：30088
 
 ***立个Flag好吧***：如果特蕾西娅能和博士关系在游戏里实锤，我肯定会写罗德岛篇，附加IF线（博士各种劈腿线）。要是特蕾西娅，普瑞塞斯和博士关系实锤，那我出了上面做的事，还会在完结后重新整理文本，修订，然后做成pdf分享（虽然肯定没人要就是了![](static/image/smiley/girl/23.png)）。
 
-<title>55</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 55
 
 犯蠢了，我犯了一个生理学错误![](static/image/smiley/girl/11.png)。我一直以为受精过程中精子是不会接触子宫壁的，重温了一下受精过程，精子倒是更像从子宫“爬”进输卵管了，完了，前面写的部分给自己挖坑了![](static/image/smiley/girl/12.png)。我想想办法把这个部分圆回来吧。
 
-<title>56</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 56
 
 向各位道歉，前一天还雄心勃勃地做各种计划，现在就因为设定问题，我卡壳了，可恶啊，现在没有什么合理解释手段，也不想吃书，哎，周末晚上不写个文都觉得自己不干正事了![](static/image/smiley/girl/23.png)。
 
-<title>57</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 57
 
@@ -2066,7 +2066,7 @@ TID：30088
 
 我感激地抱上普瑞塞斯还有些发凉的脸颊，吻了她一下。她笑了笑，慢慢地抬起了头，轻轻地蹭了蹭我。
 
-<title>58</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 58
 
@@ -2084,7 +2084,7 @@ TID：30088
 
 这样一家四口的温馨日常，在点点滴滴中的相互关心，还有齐心协力，度过难关的事![](static/image/smiley/girl/07.png)。不过老写日常也不是事，估计再写一篇博士养女儿的故事，就得写重生，然后继续推进主线了吧![](static/image/smiley/girl/31.png)。哎，主线全靠编，现在这个时间线，距离可以有参考的时间点还有5年时间，我计划在这个过程中让博士重生两次（特蕾西娅一次，普瑞塞斯一次），也就是说，两个重生篇，应该会穿插博士怎样基于前世的知识，再次在这片大地上成为权威学者的零散事，还有PRTS模拟训练和博士与前干员的故事，最后应该是双王之战篇和生于黑夜篇了，嗯，现在的基本计划是这样的![](static/image/smiley/girl/14.png)，希望到时候能凑够字数。
 
-<title>59</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 59
 
@@ -2094,7 +2094,7 @@ TID：30088
 
 我承诺这周至少三更。
 
-<title>60</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 60
 
@@ -2198,11 +2198,11 @@ TID：30088
 
 请享受凯尔希的ASMR地理时间吧![](static/image/smiley/girl/05.png)。
 
-<title>61</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 61
 
- <ignore_js_op>[阿米娅.jpg](forum.php?mod=attachment&aid=ODcxOTd8MTZhMmU1Yjd8MTYyNDY4ODc3MXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(65.76 KB, 下載次數: 0)*
+<ignore_js_op>[阿米娅.jpg](forum.php?mod=attachment&aid=ODcxOTd8MTZhMmU1Yjd8MTYyNDY4ODc3MXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(65.76 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODcxOTd8MTZhMmU1Yjd8MTYyNDY4ODc3MXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
@@ -2222,7 +2222,7 @@ TID：30088
 
 2021-2-4 19:25 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![3D版泰拉地图.JPG](img/a2ae20ba328303f018c0f1b0e5a130c2.png "3D版泰拉地图.JPG")](javascript:;)</ignore_js_op> <title>62</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![3D版泰拉地图.JPG](img/a2ae20ba328303f018c0f1b0e5a130c2.png "3D版泰拉地图.JPG")](javascript:;)</ignore_js_op>  
 
 # 62
 
@@ -2230,17 +2230,17 @@ TID：30088
 
 啊，本来想写剧情文的，为什么会这样![](static/image/smiley/girl/09.png)
 
-<title>63</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 63
 
 看到了一张比较色的问卷，用手上所有有关特蕾西娅和普瑞塞斯的图拼接了个九宫图。觉得不分享真的对不起自己的工作![](static/image/smiley/girl/27.png)
 
-<title>64</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 64
 
- <ignore_js_op>[1.png](forum.php?mod=attachment&aid=ODcyNTh8NjljNmQ4Nzd8MTYyNDY4ODc3MXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(1.17 MB, 下載次數: 0)*
+<ignore_js_op>[1.png](forum.php?mod=attachment&aid=ODcyNTh8NjljNmQ4Nzd8MTYyNDY4ODc3MXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(1.17 MB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODcyNTh8NjljNmQ4Nzd8MTYyNDY4ODc3MXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
@@ -2248,7 +2248,7 @@ TID：30088
 
 博士的婚后日常
 
-[![博士的婚后日常](img/89e67ed6bd008bd1e93cea7859e52874.png "博士的婚后日常")](javascript:;)</ignore_js_op> <title>65</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![博士的婚后日常](img/89e67ed6bd008bd1e93cea7859e52874.png "博士的婚后日常")](javascript:;)</ignore_js_op>  
 
 # 65
 
@@ -2258,7 +2258,7 @@ TID：30088
 
 我就这一个表情![](static/image/smiley/girl/05.png)，不过呢，应该主要为番外了...现在得主推剧情了。
 
-<title>66</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 66
 
@@ -2320,29 +2320,29 @@ TID：30088
 
 我不好意思地挠了挠头。
 
-<title>67</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 67
 
- <ignore_js_op>[某人下次犯错的时候.JPG](forum.php?mod=attachment&aid=ODczNDZ8ZTUzNDdjYjZ8MTYyNDY4ODc3MXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(156.71 KB, 下載次數: 1)*
+<ignore_js_op>[某人下次犯错的时候.JPG](forum.php?mod=attachment&aid=ODczNDZ8ZTUzNDdjYjZ8MTYyNDY4ODc3MXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(156.71 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=ODczNDZ8ZTUzNDdjYjZ8MTYyNDY4ODc3MXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
 2021-2-8 12:07 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![某人下次犯错的时候.JPG](img/05c654d13d44734d73ac739b11f86639.png "某人下次犯错的时候.JPG")](javascript:;)</ignore_js_op> <title>68</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![某人下次犯错的时候.JPG](img/05c654d13d44734d73ac739b11f86639.png "某人下次犯错的时候.JPG")](javascript:;)</ignore_js_op>  
 
 # 68
 
 道个歉，计划赶不上变化，少的一更过几天补上![](static/image/smiley/girl/12.png)
 
-<title>69</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 69
 
 卡壳了，写个小番外轻松一下![](static/image/smiley/girl/16.png)。
 
-<title>70</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 70
 
@@ -2494,23 +2494,23 @@ TID：30088
 
 不过这梦也算给我提了个醒，我那本日记，确实得藏好一点。
 
-<title>71</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 71
 
- <ignore_js_op>[萨卡兹有什么坏心思呢.JPG](forum.php?mod=attachment&aid=ODc0MzR8ZGRkYzlhNmJ8MTYyNDY4ODc4OHwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(169.15 KB, 下載次數: 0)*
+<ignore_js_op>[萨卡兹有什么坏心思呢.JPG](forum.php?mod=attachment&aid=ODc0MzR8ZGRkYzlhNmJ8MTYyNDY4ODc4OHwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(169.15 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODc0MzR8ZGRkYzlhNmJ8MTYyNDY4ODc4OHwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
 2021-2-11 10:12 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![萨卡兹有什么坏心思呢.JPG](img/77c14fbf0b8307488ce642d1e815b948.png "萨卡兹有什么坏心思呢.JPG")](javascript:;)</ignore_js_op> <title>72</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![萨卡兹有什么坏心思呢.JPG](img/77c14fbf0b8307488ce642d1e815b948.png "萨卡兹有什么坏心思呢.JPG")](javascript:;)</ignore_js_op>  
 
 # 72
 
 年三十到了，祝大家牛年大吉，牛转乾坤，身体健康，阖家幸福，工作学业顺利！![](static/image/smiley/girl/16.png)
 
-<title>73</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 73
 
@@ -2524,7 +2524,7 @@ TID：30088
 
 唉？好像暴露了自己是个抖M的事实![](static/image/smiley/girl/04.png)。
 
-<title>74</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 74
 
@@ -2532,7 +2532,7 @@ TID：30088
 
 番外三：PRTS的模拟时间（上）“这是必要的牺牲。”我咧嘴一笑，向普瑞塞斯炫耀地挥了挥手，我亲爱的学姐立刻用最快的速度朝我奔来。可惜，我不会给她任何机会，我远远地对普瑞塞斯抛了个飞吻，就一个猛子扎进了那个粉红色的出口，啊，令人安心的温暖和玫瑰的香气，这就是胜利的味道吗？啊，简直像是跳进了温泉中～我成功地通过了PRTS的初步测试，今天晚上，肾算是保住了！！！我沉醉在幸福中，但脚下的地面却不安分地震动起来，光线也不自然得暗了下来...唉？！不会吧？！系统时间回到三小时前...“这个模拟系统，真的会有用吗？亲爱的。”“放心啦，我心爱的小博士...”普瑞塞斯正在对模拟系统进行最后的全景测试，“嗯，很好...一切正常。5分钟后开始正式演练...”“啊，所以，为了防止误解，我重复一边哈，老婆...我，会和99个和我长相完全一致的1:1全景分身布散到这片地域里，我们的编号为00-99随机分配，作为本体的我可以通过思维来单线命令每个分身，令他们团结协作，但他们都不知道真正的发令者是几号。最终目的，是要让作为本体的我安全穿过一片无人地带，到达正确的终点。对吧？”“是的呢，先生，不过，旅途遥远，路上免不了有陷阱，变节，还有食人的女妖，”普瑞塞斯魅惑地对我呼了口香气，“这种女妖啊，最中意你这种旅人呢...她们无时无刻不想请你到她们的肚腹中去做客呢...无论你想从上面进，还是下面进，都可以哟...”“啊，我能问问，这样的女妖，有几位吗？”老婆，不要跟我这么调情，我现在光想想，就有点...小兴奋。“大女妖只有两位哦。不过另一位还没来，可惜可惜，这么美味的小点心放着不吃怎么行...不过，不要懈怠呢，这片区域还蛰伏着数百个小型女妖等待你这样的猎物上钩呢。”啊，特蕾西娅果然还是太忙了，不过这也该到她结束工作的时间了，可能一会儿才能过来吧。“学姐...我真的绷不住，别再诱惑我了。”普瑞塞斯发出一声得意的轻哼，她笑着说：“不过，我们的小点心，你可一定要胜利啊，胜利的话，姐姐们今晚会很温柔地对待你的。”“如果我一个不小心...输了呢？”“嗯...输了的话啊...”普瑞塞斯对我舔了舔嘴唇，咽了咽口水，“嗯，那就没办法了...很期待小点心今夜被玩坏的样子啊。”“学姐～～～～”因为普瑞塞斯实在是太过...你懂吧，我只能使用撒娇战术。“好了，不闹了，我亲爱的老公。逗逗你感觉真好玩，”巨大的两瓣红唇予我以一个温柔的香吻，啊，这清香的茉莉，“不过呢，这个系统里会安排一些战场上会遇见的情况哦，给你个提醒，老公，不要完全相信你遇见的所有人哦，请加油！” 模拟战场，白沙峡谷，系统时间下午1时我看了一眼自己的狗牌，13号啊，啊哈哈，这个数字对萨卡兹来说还挺吉利的。我眼前浮现了一幅全景地图和若干个被标记的白点，正中心的蓝点代表我自己，右上的91...是总人数吗？不是算我的话，本体带分身一共有100人吗？是不是有9人直接roll到了女妖的巢穴中？那是真的够倒霉的...对他们来说游戏还没开始，就结束了。嗯，看地图标记，右上角那片区域，是安全区吧，终点就在那片区域的某个地点吧。好，我了解了。嗯，现在要做的，应该是重新集结队伍...离我几百米开外，就有一个我的分身，立刻把他叫过来吧...等等...我想起了普瑞塞斯对我说的话，我需要一个小小的测试，来确定他是否真正是我这边的人。“14号，14号，这里是本体，请回话。”我在自己的意识世界中呼唤着另一个分身。“这里是14号，本体，请讲...” 我用着相同的方法，接着测试了分散在地图各处，12个人的忠诚度。测试显示，他们都是可信的。我发号施令，把他们12人任命为分队长，并命令剩余的队员向指定的方位进行集结，15分钟内必须完成整队，逾期不候！可惜一些队员的运气并不是很好，很快，屏幕上的数字显示，我们又减员了一些，这些女妖似乎有智慧，其中两个分队所在的区域很快失去联系，应该是团灭了，果不其然，屏幕上的数字很快降到了70以下，短短十分钟内，我们损失了差不多三支小队。“14号，去前方警戒一下，看看有没有女妖冲着我们过来...天啊，最后一个成员怎么这么慢！”不过，从位置上看，他就在几百米外了，和我们隔着一座小山包，很快就能看到他了...“不好！”只见他从地图上消失了，“隐蔽！女妖们可能就在附近！呃？等等...”奇怪的是，刚刚，明明变成“69”的数字，却又变回了“70”，白色的标记再次从地图上出现，以更快的速度朝我们这里奔来。“警戒！”我向小队成员下了命令。 另一个我很快从拐角处出现，他上气不接下气，不时惊恐地向后看，像是有什么恐怖的东西追逐着他似的。“怎么了？！”“快..快走...附...附近有...有...我差点...差点被...拖进土里...”“女妖吗？”对方接不上话，不停地喘气，而且连连点头。麻烦了...“14号，请回复，14号，14号！”我也顾不上很多，立刻开始联系14号...其他组员只见我面色慢慢沉了下来，“14号恐怕...附近不安全，我们快走！”
 
-模拟战场，白沙峡谷，系统时间下午1时13分十支小队集合完毕，我们从不同的方向向终点迈进。谁知道前方还有什么，这才刚刚开始，三成的人员已经失去联系，如果将来我也铸此大错，我是绝对不可能原谅自己的。也许零伤亡不是这次模拟的主题，好，我明白了，今天要学的东西到底是什么了。达成目的就行了，这次我就是要不计代价，不择手段地达成目的。我那古灵精怪的学姐，不知道你在前方又给我准备了什么惊喜呢。我看了看自己的小队成员，除我以外，分别是17号，18号，19号，25号，还有刚刚死里逃生的21号。他们中，会不会有女妖的耳目呢，我倒不想打草惊蛇。不过，如果真有这个人存在，我应该怎么办呢？在我沉思之际，我完全没有注意到，小队中的一个人，冲我露出了别样的笑容。 <title>75</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+模拟战场，白沙峡谷，系统时间下午1时13分十支小队集合完毕，我们从不同的方向向终点迈进。谁知道前方还有什么，这才刚刚开始，三成的人员已经失去联系，如果将来我也铸此大错，我是绝对不可能原谅自己的。也许零伤亡不是这次模拟的主题，好，我明白了，今天要学的东西到底是什么了。达成目的就行了，这次我就是要不计代价，不择手段地达成目的。我那古灵精怪的学姐，不知道你在前方又给我准备了什么惊喜呢。我看了看自己的小队成员，除我以外，分别是17号，18号，19号，25号，还有刚刚死里逃生的21号。他们中，会不会有女妖的耳目呢，我倒不想打草惊蛇。不过，如果真有这个人存在，我应该怎么办呢？在我沉思之际，我完全没有注意到，小队中的一个人，冲我露出了别样的笑容。  
 
 # 75
 
@@ -2540,7 +2540,7 @@ TID：30088
 
 我的脑子本来就笨，写这种动脑的场景果然还是有点勉强啊![](static/image/smiley/girl/17.png)。
 
-<title>76</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 76
 
@@ -2578,7 +2578,7 @@ TID：30088
 
 这种时刻总是会让人感到恐惧又无比刺激，多巴胺在我身体里擦起一个火星，灌满我全身，名为斗志的燃料，被这个火星彻底引燃了....
 
-<title>77</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 77
 
@@ -2592,7 +2592,7 @@ TID：30088
 
 “这是必要的牺牲。”我咧嘴一笑，向普瑞塞斯炫耀地挥了挥手，我亲爱的学姐知道我要溜，立刻用最快的速度朝我奔来。可惜，我不会给她任何机会，我远远地对普瑞塞斯抛了个飞吻，就一个猛子扎进了那个粉红色的出口，啊，令人安心的温暖和玫瑰的香气，这就是胜利的味道吗？啊，简直像是跳进了温泉中～我成功地通过了PRTS的初步测试，今天晚上，肾算是保住了！！！我沉醉在幸福中，但脚下的地面却不安分地震动起来，光线也不自然得暗了下来...唉？！不会吧？！ “咕噜，”白裙的萨卡兹少女将嘴中的爱人咽进了肚子里，“姐姐，老公居然和你说的一样，真的主动跳进我的嘴里了。”“**不过还是一波三折呐，要不是我刚才逼迫亲爱的一下，他可能真的发现这是个陷阱了呢？**”普瑞塞斯笑到，“**老公给我们制造了太多惊喜了，未来也很让人期待呢。**”“老婆？！你什么时候过来的？”“很早就过来了，我在旁边目睹了全程呢，老公表现得沉着冷静，非常棒啊！”“老婆...你这...嘿嘿...我真有点不好意思，不过老婆你这是...”“普瑞塞斯姐姐没有跟老公说吗？我也是全程参与这个模拟的，其实我一直都在沿系统的边界跟着你。老公，如果你从错误的地方退出，就会因为高度而摔伤啊，因为这些地方都是陷阱啊，我的任务就是保证老公你在落入陷阱前，平稳接住你哦。”“哎？哎？可是...这...这不是写着...出口吗？我这情况，直接‘进口’了吧。”“**这只写了‘出口’，又没写‘安全’，亲爱的。**”普瑞塞斯的说法，让我以为妙绝。听了这个解释，我不由得直接栽倒在特蕾西娅的胃里......“**你要有辨识能力，亲爱的，在压力之下，也要做出决断，一个看似安全的出口，背后其实可能是隐藏着敌人的重兵，待你松懈之时，就会把你一口吃掉。**”我表示同意，今天的模拟战中，我真的受益匪浅，不过呢...“那个，能不能算平局啊？”出乎我意料，两位老婆都表示同意，特蕾西娅甚至觉得我算小胜，哎，这就是“吾妻美我者，私我也”吧！**“不过呢，关于刚才在石蘑菇那里，亲爱的聊到我们的事，还是很让人在意呢，尤其是一些...很让人意外的内容...”**“这...这...为什么提这个...”“**亲爱的...如果你不打算交代的话，对本局胜负的判定，就难说了呐。今夜也是啊...**”普瑞塞斯的腹黑属性一下子就暴露无遗。“**老公...还请你...一，五，一，十，地，交，代，一，下。**”特蕾西娅一字一顿，她的声音虽然还是那么温柔，但她的语气让我感到颤栗。我果然，是娶了两位魔鬼老婆吧。 
 
-<title>78</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 78
 
@@ -2604,7 +2604,7 @@ TID：30088
 
 不过，写番外真好玩![](static/image/smiley/girl/07.png)。而且不会有刀，而且博士次次吃瘪![](static/image/smiley/girl/30.png)，啊，下次想到什么新点子了还会写的。
 
-<title>79</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 79
 
@@ -2614,7 +2614,7 @@ TID：30088
 
 谢谢，我蛮喜欢女A男O这种，无奈这一对产粮没那么多，只能自己动手，丰衣足食了![](static/image/smiley/girl/30.png)。
 
-<title>80</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 80
 
@@ -2626,7 +2626,7 @@ GG![](static/image/smiley/girl/23.png)，连写几天番外，我写主线的感
 
 我得反复回读一下前文![](static/image/smiley/girl/23.png)，回忆回忆那种感觉，可能更新速度又要慢下来了。
 
-<title>81</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 81
 
@@ -2638,7 +2638,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 由于眼睛还没有适应黑暗，我的视觉神经还不能帮上我任何忙。与其徒劳地让视觉分散走我的注意力，我索性把眼睛闭上，集中更多的精力开始进行回想：来到这里之前，我在干什么呢？
 
- 啊，我想起来了。我最后清晰的记忆是自己在PRTS系统中进行模拟。对，对，是这个，最近几周我都在为快要到来的“重生”做全面准备，为此，我每天都泡在PRTS模拟系统中，做着各种魔鬼训练...但是有时候我的计划有点不切实际。果然，不应该胡乱设置什么“无水补给条件下，沙漠十公里急行军”啊...太操之过急了，同时也是太眼高手低了，啧，我这两个毛病还是一直没改啊。而这也导致我付出了代价——在路程半途因为中暑晕过去了。
+啊，我想起来了。我最后清晰的记忆是自己在PRTS系统中进行模拟。对，对，是这个，最近几周我都在为快要到来的“重生”做全面准备，为此，我每天都泡在PRTS模拟系统中，做着各种魔鬼训练...但是有时候我的计划有点不切实际。果然，不应该胡乱设置什么“无水补给条件下，沙漠十公里急行军”啊...太操之过急了，同时也是太眼高手低了，啧，我这两个毛病还是一直没改啊。而这也导致我付出了代价——在路程半途因为中暑晕过去了。
 
 可这也解释不通我在哪里啊，最近几周的训练使我对PRTS系统有了很深入的了解。关于模拟训练板块，PRTS有一道保险机制：如果系统检测到任一参与者在模拟过程中出现生命体征的极度不稳定，PRTS将立即强制性取消当前模拟科目，进行针对性的应急处理，再将伤员移送至医疗部，同时通知具有最高权限的管理员——也就是我和我的二位老婆...如果一切按照正常流程来，那我现在应该是躺在医疗部的某个病床的枕头上，而我的两个老婆应该会守在我的两侧。不是吧，又让老婆们为我担心了...想到这里我忍不住白了自己一眼。
 
@@ -2742,7 +2742,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 没事，我**亲爱的**小博士，你让我真的对你有些着迷了，我们...来日方长... 
 
- “老公！”“老公你醒了！”
+“老公！”“老公你醒了！”
 
 “我这是...”我感到嗓子好干，睁眼一看，这是熟悉的天花板，我躺在雪白的病床上，枕在柔软的枕头上，我亲爱的老婆们一左一右地枕在我的两侧，她们的脸上挂着淡淡的泪痕。我的心揪了起来。
 
@@ -2758,7 +2758,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 但她是谁？ 
 
-<title>82</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 82
 
@@ -2766,7 +2766,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 这是我原创的一个人物，玩过明日方舟的可以猜一猜，如此强大而具有侵略性的女生，到底是以游戏中的什么为原型的，她在不远的将来又会和博士会发生什么样的事呢![](static/image/smiley/girl/30.png)。
 
-<title>83</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 83
 
@@ -2784,7 +2784,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 我不知道老国王是出于什么考量做得这种决定，太过冒险，也绝非明智。但我们掌握的信息，终归没有老国王的多，也许，是可能造反的贵族远不止北方那些人，甚至让他都无奈的选择妥协了吧。也许，是王宫里的重臣们，也被查出和国外势力有所勾连的证据，牵扯的人太多，令他对宫廷大臣们的信任失掉了，打算重新培养亲信了吧...哎，谁知道呢，管他呢，我又不是这头老阿斯兰，哎...操心那么多，不是嫌自己老得慢吗？不想了不想了，总之，老国王也算帮大忙了，在他驾崩前，也就是未来的几年，应该都不会出什么幺蛾子了。未来的事，让未来的我去操心吧...我可以好好利用这段时间，把自己的事情做好，比如明天，我就得“重生”了。啊，那个麻烦的女人，最近几周也没来烦我了，好事啊...希望我们永远不要再见面了...她真的是我的克星...
 
- 已是深夜时分了，我的枕头两侧，两位老婆睡得正香，我却一点都睡不着...
+已是深夜时分了，我的枕头两侧，两位老婆睡得正香，我却一点都睡不着...
 
 啧，怎么感觉明天要高考似的...
 
@@ -2846,7 +2846,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 一切来自明天的未知挑战？呵，那又有什么大不了的呢。
 
-<title>84</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 84
 
@@ -2854,7 +2854,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 啃桃林.jpg 
 
-<title>85</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 85
 
@@ -2862,7 +2862,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 所以我打算安利你们：[https://b23.tv/Ss06pe](https://b23.tv/Ss06pe)
 
-<title>86</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 86
 
@@ -2988,13 +2988,13 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 算了，我也没辙，那这样，干脆一视同仁一下得了。明天早起的时候，就叫学姐也把我的意识分身也给吸收了吧。
 
-<title>87</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 87
 
 许久不写，这文章都感觉像是看别人的作品一样了，顺便，我好像被自己的文开发出来了什么糟糕的xp，感觉缩小后被卵子胞吞分解掉，然后重组为受精卵似乎会有点色气的样子![](static/image/smiley/girl/27.png)。
 
-<title>88</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 88
 
@@ -3004,7 +3004,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 主线有点卡壳啊，YJ一点线索都不给，我就在这编，硬编。
 
-<title>89</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 89
 
@@ -3014,7 +3014,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 快了，得再花一章把那个自创角色交代一下，就计划继续主线。我打算写正式成为巴别塔博士的经历和莱塔尼亚篇了。
 
-<title>90</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 90
 
@@ -3156,11 +3156,11 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 “后面的事情，亲爱的，你大概也都知道了吧。PRTS，她成了你的普瑞塞斯。而晶体单元，变成了萨卡兹一族的预言和传承，现在，她是你的特蕾西娅。而结合了普瑞塞斯肉体，记忆，情感，执念，还有大量辐射的‘黑曜石’，也就是站在你面前的我，成了第一块源石。或者说，我就是源石的意志。我在这片大地上找了好久，终于找到你了...无论你怎么看我，我都不在意。我不会，再让你离开我了。” 
 
-<title>91</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 91
 
- <ignore_js_op>[第一块源石.jpg](forum.php?mod=attachment&aid=ODc3ODN8MWY4ZWJhMzZ8MTYyNDY4ODc5NXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(114.28 KB, 下載次數: 0)*
+<ignore_js_op>[第一块源石.jpg](forum.php?mod=attachment&aid=ODc3ODN8MWY4ZWJhMzZ8MTYyNDY4ODc5NXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(114.28 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODc3ODN8MWY4ZWJhMzZ8MTYyNDY4ODc5NXwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
@@ -3172,7 +3172,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 2021-3-7 09:52 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![绝望中的普瑞塞斯.jpg](img/c0d1717853301ad599d426918f65c9b9.png "绝望中的普瑞塞斯.jpg")](javascript:;)</ignore_js_op> <title>92</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![绝望中的普瑞塞斯.jpg](img/c0d1717853301ad599d426918f65c9b9.png "绝望中的普瑞塞斯.jpg")](javascript:;)</ignore_js_op>  
 
 # 92
 
@@ -3184,7 +3184,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 我也打算参照这个手书来写一下后面的主线![](static/image/smiley/girl/16.png)
 
-<title>93</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 93
 
@@ -3196,7 +3196,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 不能算完全的反派，灰色人物吧。她有普瑞塞斯对博士的执念，所以在博士面前表现的更多是个占有欲很强的可爱妹子，但是她还有源石的一面，只是我还没有写而已![](static/image/smiley/girl/08.png)。后面，她也算是博士成为巴别塔恶灵的一个原因吧。
 
-<title>94</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 94
 
@@ -3218,13 +3218,13 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 新角色我打算命名为**“欧瑞莉姆”**，来自源石的英文名“**Originium**”。 
 
-<title>95</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 95
 
 实在不好意思，电脑出问题，拿去修了，本来周末写的一些更新发不了，下周是春假，我努力更新来补上进度吧![](static/image/smiley/girl/12.png)
 
-<title>96</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 96
 
@@ -3270,7 +3270,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 “哦！”阿米娅兴奋地挥起了拳头。
 
- “让小孩子吃太多甜食可不好。” 凯尔希看着坐在自己对面的那对父女，淡淡地说道。
+“让小孩子吃太多甜食可不好。” 凯尔希看着坐在自己对面的那对父女，淡淡地说道。
 
 “偶尔吃一根棒棒糖也没关系的，我多多少少也算是个博士，我也懂得一点小孩子的健康饮食。” 我在阿米娅的额头上轻吻了一下，“好了，我的乖孩子，先去里屋看一看图画书吧，我和凯尔希医生有工作上的事情要谈。”
 
@@ -3296,43 +3296,43 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 “唉～那又不是真的，掩护身份而已，我真实的专业方向可是神经科学，人工智能工程，还有制药学。源石和天灾？这个领域，我可是门外汉啊。” 我觉一阵头疼，仰躺在办公椅上，揉着自己的太阳穴。
 
- “博士，我问你，” 凯尔希吹了吹手里捧着的咖啡杯，不紧不慢地问道，“假设，你面对是一种全新的神经系统病毒，怎样用你的现有知识来研究出有效的治疗手段。”
+“博士，我问你，” 凯尔希吹了吹手里捧着的咖啡杯，不紧不慢地问道，“假设，你面对是一种全新的神经系统病毒，怎样用你的现有知识来研究出有效的治疗手段。”
 
- “啊，只问流程的话，这个简单。首先我们会利用小白鼠来追踪该病毒的作用位点及发病症状，然后用超级计算机来建模，根据现有的建模模型，反向推断神经毒素的致病机理，然后对症下药，找到具体的药物分子阻断机理反应，最后则是对药物分子进行进一步修饰，减少毒副作用以及合成难度什么的。” “瞧，博士。”凯尔希喝了一口咖啡，继续说道，“至少从刚才的三言两语中，你让我感觉你有点像个这个领域的学者了。”
+“啊，只问流程的话，这个简单。首先我们会利用小白鼠来追踪该病毒的作用位点及发病症状，然后用超级计算机来建模，根据现有的建模模型，反向推断神经毒素的致病机理，然后对症下药，找到具体的药物分子阻断机理反应，最后则是对药物分子进行进一步修饰，减少毒副作用以及合成难度什么的。” “瞧，博士。”凯尔希喝了一口咖啡，继续说道，“至少从刚才的三言两语中，你让我感觉你有点像个这个领域的学者了。”
 
 “懂了，我会努力用自己的话语，把不怀好意者的问题堵掉的，顺便问一句，凯尔希。你希望我表现地像是个什么样子的学者？”
 
 “重剑无锋，大巧不工。”
 
- “......你要求还挺高的......” 我嘴角扯了两下，凯尔希应该是想借我的表现，给那些幕后伺机而动的人一个警告吧。巴别塔并不想显露锋芒，但要是真的被惹怒了，也会激起惊涛骇浪。
+“......你要求还挺高的......” 我嘴角扯了两下，凯尔希应该是想借我的表现，给那些幕后伺机而动的人一个警告吧。巴别塔并不想显露锋芒，但要是真的被惹怒了，也会激起惊涛骇浪。
 
- 凯尔希点了点头：“看你的了，博士。这次你是主角。”
+凯尔希点了点头：“看你的了，博士。这次你是主角。”
 
- “你不去？”我眉毛扬了起来，“我一个人，恐怕不善处理交际场合的事。”
+“你不去？”我眉毛扬了起来，“我一个人，恐怕不善处理交际场合的事。”
 
- “这次我恐怕帮不上你，”凯尔希把肩膀一侧的源石结晶露给我看，“如你所见，博士，我是个感染者。莱塔尼亚的官方和民间，对感染者的态度都不是很好。我没有收到邀请，随意就跟着去会场，这会引起不必要的麻烦。给后续我们的外交工作制造麻烦，不过，你可以叫上普瑞塞斯，让她跟你一起去。”
+“这次我恐怕帮不上你，”凯尔希把肩膀一侧的源石结晶露给我看，“如你所见，博士，我是个感染者。莱塔尼亚的官方和民间，对感染者的态度都不是很好。我没有收到邀请，随意就跟着去会场，这会引起不必要的麻烦。给后续我们的外交工作制造麻烦，不过，你可以叫上普瑞塞斯，让她跟你一起去。”
 
 “特蕾西娅呢？她总能跟我去吧。”
 
 “殿下的话，那更不行，很抱歉。无论是从安全和外交的角度上讲，我都要为殿下负责。”
 
- “唉，好吧好吧，我听你的，凯尔希。还有什么事吗？” 我瘫在了椅子上，真讨厌，该死的莱塔尼亚人，我还想带两个老婆去一下，姑且就算是度蜜月了。
+“唉，好吧好吧，我听你的，凯尔希。还有什么事吗？” 我瘫在了椅子上，真讨厌，该死的莱塔尼亚人，我还想带两个老婆去一下，姑且就算是度蜜月了。
 
- “嗯，还有，你看下这个照片。” 凯尔希递过来了一张合照，照片上是一个普通的卡普里尼（羊）一家，夫妻俩都戴着眼镜，颇有些学者的味道，他们的女儿似乎才10岁，站在中间，有些怯生生地望着镜头。
+“嗯，还有，你看下这个照片。” 凯尔希递过来了一张合照，照片上是一个普通的卡普里尼（羊）一家，夫妻俩都戴着眼镜，颇有些学者的味道，他们的女儿似乎才10岁，站在中间，有些怯生生地望着镜头。
 
- “这是瑙曼教授一家，夫妻俩都是天灾学教授和火山专家，中间是他们的女儿，阿黛尔。不同于大部分莱塔尼亚人，瑙曼教授一家对感染者们非常同情，是我们可以信赖的人，而且，瑙曼教授的不少学生，现在都在为我们工作。” “不错的一家，那我要做什么？” “有人打算对瑙曼教授一家不利，教授向当地警方求助，但不知为什么，警方似乎不想管这件事情。你要去在会议上见瑙曼教授，找个合适的时机向他表明身份。我给你指挥莱塔尼亚办事处的几支行动小队的指挥权限，请暗中保护他们一家。但是，不能把动静闹得太大，不然我们不好收场。”
+“这是瑙曼教授一家，夫妻俩都是天灾学教授和火山专家，中间是他们的女儿，阿黛尔。不同于大部分莱塔尼亚人，瑙曼教授一家对感染者们非常同情，是我们可以信赖的人，而且，瑙曼教授的不少学生，现在都在为我们工作。” “不错的一家，那我要做什么？” “有人打算对瑙曼教授一家不利，教授向当地警方求助，但不知为什么，警方似乎不想管这件事情。你要去在会议上见瑙曼教授，找个合适的时机向他表明身份。我给你指挥莱塔尼亚办事处的几支行动小队的指挥权限，请暗中保护他们一家。但是，不能把动静闹得太大，不然我们不好收场。”
 
 “凯尔希老师，你还真给我出了个难解决的课题。” 我又开始掐起了自己的太阳穴。
 
 “好好计划一下吧，三天以后出发。”
 
-“唉～是，遵命，长官。” <title>97</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+“唉～是，遵命，长官。”  
 
 # 97
 
 感觉不写gts的部分就容易写得乱七八糟的![](static/image/smiley/girl/12.png)，肯定是太久没写了的锅。
 
-<title>98</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 98
 
@@ -3342,7 +3342,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 感谢指正，这就把日期订正![](static/image/smiley/girl/01.png)。
 
-<title>99</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 99
 
@@ -3430,7 +3430,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 不过，这都是后话了。
 
-<title>100</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 100
 
@@ -3440,7 +3440,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 咕了几周真的不好意思，下次还敢。
 
-<title>101</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 101
 
@@ -3454,15 +3454,15 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 各位，我们五月中下旬见！
 
-<title>102</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 102
 
-咕咕咕，不好意思，好久没更新了。最近学业的事情太多，忙不过来。再加上YJ太能拖主线了，YY都没个参考依据。最近读了读前面写的文，觉得自己需要找找之前的那种感觉了，老写番外也不好。那周末吧，最迟这周末续更，要是没更新的话，那就把博士拿去炖汤给老婆补身子吧。附一张图，还是冬笙大佬的，非常符合我对博士官设的理解。而且，当初要不是看了他的手书，我也不会下定决心，写这样一篇文的，以上，咕咕咕两个月不好意思啊。<title>103</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+咕咕咕，不好意思，好久没更新了。最近学业的事情太多，忙不过来。再加上YJ太能拖主线了，YY都没个参考依据。最近读了读前面写的文，觉得自己需要找找之前的那种感觉了，老写番外也不好。那周末吧，最迟这周末续更，要是没更新的话，那就把博士拿去炖汤给老婆补身子吧。附一张图，还是冬笙大佬的，非常符合我对博士官设的理解。而且，当初要不是看了他的手书，我也不会下定决心，写这样一篇文的，以上，咕咕咕两个月不好意思啊。 
 
 # 103
 
- <ignore_js_op>[IMG_4780.JPG](forum.php?mod=attachment&aid=ODkyMTd8OWE2Y2Q2ZWJ8MTYyNDY4ODgwNHwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(248.49 KB, 下載次數: 1)*
+<ignore_js_op>[IMG_4780.JPG](forum.php?mod=attachment&aid=ODkyMTd8OWE2Y2Q2ZWJ8MTYyNDY4ODgwNHwxODIzMHwzMDA4OA%3D%3D&nothumb=yes) *(248.49 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=ODkyMTd8OWE2Y2Q2ZWJ8MTYyNDY4ODgwNHwxODIzMHwzMDA4OA%3D%3D&nothumb=yes)
 
@@ -3470,7 +3470,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 不要再落单了，博士
 
-[![不要再落单了，博士](img/fe1c3e9afb0dc93285cad114d4bdd864.png "不要再落单了，博士")](javascript:;)</ignore_js_op> <title>104</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![不要再落单了，博士](img/fe1c3e9afb0dc93285cad114d4bdd864.png "不要再落单了，博士")](javascript:;)</ignore_js_op>  
 
 # 104
 
@@ -3546,7 +3546,7 @@ OK，我们接着来我们的主线![](static/image/smiley/girl/07.png)
 
 顺便，我还可以练练我刚学的莱塔尼亚语。
 
-<title>105</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 105
 

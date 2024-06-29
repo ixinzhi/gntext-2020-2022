@@ -4,7 +4,7 @@
 
 TID：30885
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -20,7 +20,7 @@ TID：30885
 
 有什么建议也可以告诉我，我可以尝试去改进（毕竟第一次写文，经验相当缺乏233）
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -276,7 +276,7 @@ TID：30885
 
 然后慢慢地，把丝袜褪去。
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -326,7 +326,7 @@ TID：30885
 
 女皇大人其实是在用她的下体征服整个银河系。
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 

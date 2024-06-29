@@ -4,7 +4,7 @@
 
 TID：30931
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -20,7 +20,7 @@ https://gs-uploader.jinja-modoki.com/upld-view-document.php?file=/documents/teru
 
 お下げ　　→　お(さ)げ　　→　纱
 
-ショート　→　(し)ょーと　→　栞<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ショート　→　(し)ょーと　→　栞 
 
 # 2
 

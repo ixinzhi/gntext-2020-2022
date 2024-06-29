@@ -4,7 +4,7 @@
 
 TID：30961
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -144,7 +144,7 @@ TID：30961
 
 他再也不会画画了。
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -156,7 +156,7 @@ TID：30961
 
 完工后补充评论，如作者自己所说，他似乎确实还不太擅长写足系。。。起码我个人看着是没啥感觉。不过他倒是有提到会继续练习，期待他的进步吧~
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 

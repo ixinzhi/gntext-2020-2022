@@ -4,7 +4,7 @@
 
 TID：29726
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -528,7 +528,7 @@ TID：29726
 
 这样的绫音，不管用什么办法都没办法打败的吧。
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

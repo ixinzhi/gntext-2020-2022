@@ -4,7 +4,7 @@
 
 TID：30991
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -62,7 +62,7 @@ TID：30991
 
 2021-5-29 19:55 上傳 
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -72,7 +72,7 @@ TID：30991
 
 我没有买作者的fantia/patreon会员，如有买可以分享出来，我有空会翻译的
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 

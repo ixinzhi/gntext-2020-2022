@@ -4,7 +4,7 @@
 
 TID：30095
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -50,11 +50,11 @@ TID：30095
 
 原图链接：[https://www.deviantart.com/megalovercn/art/Lai-Yumeng-820765192](https://www.deviantart.com/megalovercn/art/Lai-Yumeng-820765192)
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
-我明明写的是带三点水的濛为什么复制过来就没有了。。。手机码字好麻烦<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+我明明写的是带三点水的濛为什么复制过来就没有了。。。手机码字好麻烦 
 
 # 3
 
@@ -64,7 +64,7 @@ TID：30095
 
 哈哈哈哈哈哈这个兄弟可能是看着地图写的![](static/image/smiley/bigface/53.gif)
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 

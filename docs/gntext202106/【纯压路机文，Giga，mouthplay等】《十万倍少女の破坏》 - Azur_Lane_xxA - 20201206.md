@@ -4,7 +4,7 @@
 
 TID：29908
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -260,7 +260,7 @@ TID：29908
 
 最后，那里只剩下一片散发着少女口臭的地面了。
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

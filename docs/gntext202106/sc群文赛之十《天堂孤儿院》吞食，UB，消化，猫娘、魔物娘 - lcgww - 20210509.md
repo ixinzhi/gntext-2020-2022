@@ -4,7 +4,7 @@
 
 TID：30844
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -268,7 +268,7 @@ TID：30844
 
 【完】
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -276,7 +276,7 @@ TID：30844
 
 > 什么，这是什么嘛? 怎么可以写的这么好，给你点个赞吧(´O｀)
 
-感谢感谢(❁´ω`❁)，感谢支持喵~~<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+感谢感谢(❁´ω`❁)，感谢支持喵~~ 
 
 # 3
 

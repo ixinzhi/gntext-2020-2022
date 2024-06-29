@@ -4,7 +4,7 @@
 
 TID：31002
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -78,7 +78,7 @@ NA大大的画表面上不涩但是内心感觉好涩啊啊啊我死了
 
 2021-5-31 00:41 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

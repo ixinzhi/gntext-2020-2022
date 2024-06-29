@@ -4,7 +4,7 @@
 
 TID：30385
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,7 +12,7 @@ TID：30385
 
 “呀，姐姐也终于成为女神了呢。”
 
- “嘿嘿，还是多亏了优秀的妹妹嘛。”
+“嘿嘿，还是多亏了优秀的妹妹嘛。”
 
 朝阳之下，两位依偎着的少女并列走着，她们之间有着极其微妙的关系。虽然同是身为女神族——这类世界中最强大的存在，但是姐姐的力量，觉醒得要比妹妹慢上一年，也就是说妹妹反而成了姐姐的前辈。
 
@@ -650,7 +650,7 @@ TID：30385
 
 QQ: 2579573803 
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

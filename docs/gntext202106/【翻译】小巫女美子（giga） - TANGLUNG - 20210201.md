@@ -4,11 +4,11 @@
 
 TID：30260
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-这篇文章是刊登在icecat大佬的同人志《モエデカ！》里面的，因为粗略的看了一下内容和插图都是我比较喜欢的所以就找了E站上的汉化组帮忙翻译了一下，希望大家能喜欢！<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+这篇文章是刊登在icecat大佬的同人志《モエデカ！》里面的，因为粗略的看了一下内容和插图都是我比较喜欢的所以就找了E站上的汉化组帮忙翻译了一下，希望大家能喜欢！ 
 
 # 2
 

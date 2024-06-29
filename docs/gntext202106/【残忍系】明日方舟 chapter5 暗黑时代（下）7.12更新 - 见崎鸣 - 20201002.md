@@ -4,7 +4,7 @@
 
 TID：26924
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -224,7 +224,7 @@ TID：26924
 
 2019-5-31 23:49 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -436,7 +436,7 @@ To be continue
 
 2019-6-3 12:58 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -446,7 +446,7 @@ To be continue
 
 这个在chapter2会介绍的啦～～
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
@@ -456,7 +456,7 @@ To be continue
 
 其实是准备很久了呢，三测开始就想写，但是一直咕咕咕2333
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -466,7 +466,7 @@ To be continue
 
 谢谢支持啦～chapter1已更新～
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
@@ -476,7 +476,7 @@ To be continue
 
 其实并不是很轻松，两个人在里面很挤，阿米娅之后走路的时候都会把里面的残骸从鞋子开口挤出来
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 
@@ -486,7 +486,7 @@ To be continue
 
 鸣去修改一下，主要是也没看出来是什么鞋子
 
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 8
 
@@ -714,7 +714,7 @@ to be continue
 
 附上本章女主角，也是明日方舟文整合运动线的女主角W~
 
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 9
 
@@ -726,7 +726,7 @@ to be continue
 
 嗯，因为中间间隔太久很多剧情都记不得了，所以才出现了一些bug，不过刚才鸣已经修正了
 
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 10
 
@@ -964,7 +964,7 @@ to be continue
 
 2020-2-16 10:42 上傳
 
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 11
 
@@ -1198,7 +1198,7 @@ to be continue
 
 2020-6-9 05:25 上傳
 
-<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 12
 
@@ -1420,7 +1420,7 @@ W本人依旧是那副玩世不恭的模样，喷泉里已经让她染红了，�
 
 罗德岛的运输机也终于离开了切尔诺伯格，在升空的最后一瞬间透过机舱窗户，我似乎看见了站在房顶上的W。
 
-to be continue<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+to be continue 
 
 # 13
 

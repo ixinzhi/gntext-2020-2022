@@ -4,13 +4,13 @@
 
 TID：30932
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 十六夜 (hearthiel) | https://gs-uploader.jinja-modoki.com/upld-view-document.php?file=/documents/hearthiel/akizin.htm
 
-※蹂躙・破壊。　ノリって大事だけど、ノリだけだとダメだね。<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+※蹂躙・破壊。　ノリって大事だけど、ノリだけだとダメだね。 
 
 # 2
 

@@ -4,7 +4,7 @@
 
 TID：30899
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -62,7 +62,7 @@ TID：30899
 
 亚丝娜的脚的影子落在了由衣旁边的街道上。能够将大怪兽像蝼蚁一样压碎的巨大妖精完全包裹住的脚掌，对人类来说已经是超越了人类想象的大灾害了。哭喊、恐惧的人们最后看到的东西，是亚丝娜湿润的脚底下的溪谷般的指纹，和至今为止从缝隙中踏进的城镇和村庄堆积而成的瓦砾山。
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

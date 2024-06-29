@@ -4,7 +4,7 @@
 
 TID：29927
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,7 +16,7 @@ TID：29927
 
 前篇链接：[https://giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=29908&extra=](https://giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=29908&extra=)
 
- 时逢丑时三刻，正值凌晨两点。是时，白露横江，水光一色，皓月当空，素月流天。
+时逢丑时三刻，正值凌晨两点。是时，白露横江，水光一色，皓月当空，素月流天。
 
 皎白的月光照在乡间的砂石小道上，映出一位少女的影子。
 

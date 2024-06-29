@@ -4,7 +4,7 @@
 
 TID：30649
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,7 +12,7 @@ TID：30649
 
 得来时间，兴致来了，写个小文，配个小图，简单标题，邂逅随意~
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -72,7 +72,7 @@ TID：30649
 
 战局这部后面分内容，感觉以后用些个画配点文字构成碎片化的叙事，好像会更有表现力一些，累了，没想好，这里就不写了，有机会再说。
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -104,11 +104,11 @@ TID：30649
 
 她确实拿这个入侵其中其中的小小飞船毫无办法，因为它实在是太小了。秘密的技术，让这些飞船能够精确的潜入、穿梭于这宽广肉穴最细小的褶皱，同时用不知什么手段给她带来巨大的、怎么抓挠都摆脱不了的内部刺激。
 
-仅仅是想象一下有小小的飞船在自己最隐私的部位深处横行霸道，都会让索菲娅下体一紧。跟别说回忆一下曾经的惨败经历，被直冲大脑的强烈快感、在一人和一支小小军队的高潮游戏中，被刺激到倒地失去意识。在失神的前一刻她还在扯着头发，遮天蔽日巨大的，能够轻易的毁灭一座城市的无敌身躯，在这种快感的抚弄之下毫无招架之力————可能不知不觉，索菲娅已经爱上了这种被入侵的感觉也说不定。还是说，她迷上了这个传奇的、带给她不尽快感的、对自己身体了如指掌的这个男人呢？<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+仅仅是想象一下有小小的飞船在自己最隐私的部位深处横行霸道，都会让索菲娅下体一紧。跟别说回忆一下曾经的惨败经历，被直冲大脑的强烈快感、在一人和一支小小军队的高潮游戏中，被刺激到倒地失去意识。在失神的前一刻她还在扯着头发，遮天蔽日巨大的，能够轻易的毁灭一座城市的无敌身躯，在这种快感的抚弄之下毫无招架之力————可能不知不觉，索菲娅已经爱上了这种被入侵的感觉也说不定。还是说，她迷上了这个传奇的、带给她不尽快感的、对自己身体了如指掌的这个男人呢？ 
 
 # 4
 
- <ignore_js_op>[Steam Machine.png](forum.php?mod=attachment&aid=ODgyMzd8MjMwZTJlYjZ8MTYyNDY5MTE4OHwxODIzMHwzMDY0OQ%3D%3D&nothumb=yes) *(213.24 KB, 下載次數: 13)*
+<ignore_js_op>[Steam Machine.png](forum.php?mod=attachment&aid=ODgyMzd8MjMwZTJlYjZ8MTYyNDY5MTE4OHwxODIzMHwzMDY0OQ%3D%3D&nothumb=yes) *(213.24 KB, 下載次數: 13)*
 
 [下載附件](forum.php?mod=attachment&aid=ODgyMzd8MjMwZTJlYjZ8MTYyNDY5MTE4OHwxODIzMHwzMDY0OQ%3D%3D&nothumb=yes)
 
@@ -116,7 +116,7 @@ TID：30649
 
 ♫♬_Daft Punk
 
-[![♫♬_Daft Punk](img/9b8e1d1919ac85a379af621a81bb45c4.png "♫♬_Daft Punk")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![♫♬_Daft Punk](img/9b8e1d1919ac85a379af621a81bb45c4.png "♫♬_Daft Punk")](javascript:;)</ignore_js_op>  
 
 # 5
 
@@ -124,7 +124,7 @@ TID：30649
 
 女主的名字索菲娅及部分角色形象致敬了V姐一篇漫画。
 
-话说真的有人会去听我些这强行推荐的歌么hhh<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+话说真的有人会去听我些这强行推荐的歌么hhh 
 
 # 6
 
@@ -132,7 +132,7 @@ TID：30649
 
 > 每次听到自己觉得惊艳的曲子都会习惯性的点分析并附带一句XXXNB或者XXX IS GOD的感想，反正把情绪抒发出来 ...
 
-这文其实是借着个劲头写的，也没好好做应有的二次修改，就这么急躁的丢上来了，目前怎么看都是个没头没尾的故事，以后有空的时候说不定会再写写吧hhh<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+这文其实是借着个劲头写的，也没好好做应有的二次修改，就这么急躁的丢上来了，目前怎么看都是个没头没尾的故事，以后有空的时候说不定会再写写吧hhh 
 
 # 7
 
@@ -142,7 +142,7 @@ TID：30649
 
 说好听点能叫碎片化讲故事，其实真相是——完全没有整体构思，跨越时间的想到哪写到哪，哈哈。
 
-不过世界观我还真不考虑，有机会能把脑子里的想法缝补实现、写+画完的话，到更希望回归一个简单的故事，看看俺学习之余，有没有啥灵感能冒出来吧_(:* ｣∠)_<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+不过世界观我还真不考虑，有机会能把脑子里的想法缝补实现、写+画完的话，到更希望回归一个简单的故事，看看俺学习之余，有没有啥灵感能冒出来吧_(:* ｣∠)_ 
 
 # 8
 

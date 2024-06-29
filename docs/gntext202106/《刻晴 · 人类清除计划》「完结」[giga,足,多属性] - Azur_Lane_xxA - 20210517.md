@@ -4,7 +4,7 @@
 
 TID：30822
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -412,7 +412,7 @@ TID：30822
 
 最后，有建议或者批评欢迎随时联系我噢，QQ:2579573803
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -420,11 +420,11 @@ TID：30822
 
 > 甘雨点了个赞，什么时候轮到我出场啊？
 
-这一次只有刻晴 不过兴许下一篇文就是甘雨的主场了<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+这一次只有刻晴 不过兴许下一篇文就是甘雨的主场了 
 
 # 3
 
- 好巧不巧，从刻晴的肚子内发出了宛如远古巨兽般的低沉响声。虽然吐一口气并不会消耗掉刻晴多少体力。但从踏入这个世界的那一刻开始，刻晴随时都在挪动着脚掌，再加上刚刚那一发极其费神的自慰，这一切加起来，让这个娇弱的少女有些撑不住。
+好巧不巧，从刻晴的肚子内发出了宛如远古巨兽般的低沉响声。虽然吐一口气并不会消耗掉刻晴多少体力。但从踏入这个世界的那一刻开始，刻晴随时都在挪动着脚掌，再加上刚刚那一发极其费神的自慰，这一切加起来，让这个娇弱的少女有些撑不住。
 
 然而这个世界对于刻晴来说太小了，小到没有她常识中认为的正常食物。
 
@@ -610,7 +610,7 @@ TID：30822
 
 几秒之后，刻晴就从地球上消失了。 
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
@@ -618,7 +618,7 @@ TID：30822
 
 > 这个发展下去 应该是有夹星球play了吧 好活 直接先期待一波
 
-是的，接下来是超giga级玩弄八大行星。<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+是的，接下来是超giga级玩弄八大行星。 
 
 # 5
 

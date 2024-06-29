@@ -4,7 +4,7 @@
 
 TID：30346
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -248,7 +248,7 @@ TID：30346
 
 健：“太好了！”
 
-就这样，母子两人一个是抖S，一个是抖M，每天都享受着SM的游戏，而且，百合子也没有再传送过小人，因为比起那些，有着更加重要，更加值得珍惜的玩具啊。<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+就这样，母子两人一个是抖S，一个是抖M，每天都享受着SM的游戏，而且，百合子也没有再传送过小人，因为比起那些，有着更加重要，更加值得珍惜的玩具啊。 
 
 # 2
 
